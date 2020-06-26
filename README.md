@@ -16,4 +16,5 @@ Mogę się założyć że człowieka można stworzyć z kwantów jego 2 kopie ja
 Urządzenia kwantowe są miniaturowe i kieszonkowe zaś klasyczne toporne i ciężkie. 
 Może to wyjaśni światu jak powstał świat i cała wielka teoria wszystkiego. 
 Fizyka klasyczna oparta o model koła to fizyka mechaniczna 3D seria gier fallout i Resident evil sinusoida.
-Fizyka kwantowa 2D/3D to fizyka kwantowa seria gier Crysis 2 i 3, Skyrim sinosuida kwadratowa modyfikowana magiczna. 
+Fizyka kwantowa 2D/3D to fizyka kwantowa seria gier Crysis 2 i 3, Skyrim sinosuida kwadratowa modyfikowana magiczna.
+Pytanie co jest targedią a co parodią i prawdą. Tragedią jest fallout bo bazuje na kole a parodią i prawdą jest fizyka kwantowa. Crysis to bajka kwadrat a tragedia to bąba atomowa z zlikwidowaniem wiedzy o kwantach i technologiach kwantowych. Antymateria czy bomba antymateri jest odwracalna jak jest wiedza o kwantach po kole jest sprzątanie. Tyle o fizyce.  
