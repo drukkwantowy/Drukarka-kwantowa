@@ -15,3 +15,5 @@ Moja praca urządzenie kopiarki kwantowej wykorzystujące rezonans i teleportacj
 Mogę się założyć że człowieka można stworzyć z kwantów jego 2 kopie jak i każdy przedmiot wystarczy opracować teorie, badania i schemat urządzenia aby pokazać jak działa fizyka kwantowa która nie jest tak nudna jak klasyczna oparta o ruch koła. 
 Urządzenia kwantowe są miniaturowe i kieszonkowe zaś klasyczne toporne i ciężkie. 
 Może to wyjaśni światu jak powstał świat i cała wielka teoria wszystkiego. 
+Fizyka klasyczna oparta o model koła to fizyka mechaniczna 3D seria gier fallout i Resident evil sinusoida.
+Fizyka kwantowa 2D/3D to fizyka kwantowa seria gier Crysis 2 i 3, Skyrim sinosuida kwadratowa modyfikowana magiczna. 
