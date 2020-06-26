@@ -3,4 +3,4 @@ Drukarka kwantowa replikator materii na arduino Druk 3D replikacja druk kwantowy
 Replikator materii 3D
 Wykorzystuje rezonas analogowy do replikacji materii z cewki indukacyjnej. 
 Na bazie zdjęcia 2D czy projektu 3D, dowolnego pliku lub opisu matematycznego generuje sztuczną inteligencją przedmiot lub dowolną materię łącznie z istotami żywymi. 
-Drukarka działa jak replikator materi jak i rekonstruktor kwantowy. 
+Drukarka działa jak replikator materi lub jak rekonstruktor kwantowy. 
