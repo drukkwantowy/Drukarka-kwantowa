@@ -23,3 +23,10 @@ Jeśli chcemy świat klasyczny i tragiczny musimy odrzucić wiedze i książki o
 Jeśli chcemy zachować kwanty to bez kasowania wiedzy. A ludzi mówiących o klasycznej fizyce zamykać w psychiatrykach. 
 Kwantowych trzeba traktować jako cwaniaków jeśli ktoś wierzy w smuty i jest za tym aby na zawsze zniknąć. 
 Tyle o fizyce. Świat stworzyłem kwantowo bo było łatwiej ale nie podoba się to tym smutnym co lubią koło i zawsze będzie i było koło a od koła pochodzi gad. Jeśli zamarze się wiedze o kwantach to świat będzie taki jaki marzy się ludzią wierzącym oparty o wytopione ręcznie koło nie generowane cyfrowo komputerem z SI.   
+Kluczowe pytania?
+Czym zasilać i produkować energie klasycznie: Generator magnetyczny magnesy się ścierają, drewno, sytetyczna ropa jak i ta z ziemi, atom, wiatraki (zakłucanie kwantów).
+Kwantowo: impulsator, reaktor łukowy, panele fotwoltaiczne, energia fal radiowych.
+Fizyka klasyczna to ucięta ręka i brak możliwości jej regeneracji jedynie proteza.
+Fizyka kwantowa to ucięta ręka i regenerowana ręka kwantowo maść lub kwanty replikacja.
+Języki programowania: Klasyczne języki programowania nie opierają się na matematyce i są tylko zrozumiałe dla twórcy np: Oghma Infinium.
+Języki kwantowe: są zrozumiałe matematycznie do tego łatwe i łatwo odzyskać dzięki ich pomocy i paczom dane nawet te które są związane ze zmarłom osobom większość wiedzy obecnej jak i obecne języki. Wiedze o kwantach można zapisać w Oghma Infinium ale nie tak banalnej i prostej jak ta ze skyrim trudnej do złamania wymaga to polityki wielolicowej.  
