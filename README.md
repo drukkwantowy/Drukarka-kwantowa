@@ -39,3 +39,4 @@ Na autyzm jest najlepsze przeprogramowanie DNA i formatowanie mózgu jak dysku i
 Dostęp do kwantów powino się blokować w platformach programistycznych, platformy powiny być oparte o mechanike klasyczną bo inaczej autystyk wyczaruje z kodu programu mark 85 czy bombe kwantową niszczącą czas lub materie. 
 Czym jest mechatronika kwantowa? Mechatronika kwantowa bazuje na 1 urządzeniu peryferyjnym z SI do automatyki np.: generowania przedmiotów do codzienje pracy i życia fizyka kwantowa jest uniwersalana. Fizyka klasyczna zakłada 1 robot do 1 czyności. Mając komputer kwantowy, drukarkę kwantową i SI kwantową można tworzyć technologie jakich koło nie stworzy. 
 Fizyka kwantowa pozwala na zjawiska nie normalne dla fizyki klasycznej. Fizyka kwantowa jest elastyczna klasyczna jest sztywna. 
+Jak rozważyć historie na tle fizyki klasycznej? Jak się pomyśli klasycznie hanio się pojawi. Jeśli kwantowo henio nas oleje i zrobi kopie nas samych zapasową z kwantów.  
