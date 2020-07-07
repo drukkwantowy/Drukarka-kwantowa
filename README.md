@@ -68,3 +68,4 @@ To co jest doskonałe i rewolucyjne kościół przekręca znaczenia i szyfruje z
 Teoria wielkiego wybuchu nie tłumaczy jak postwł świat wielki wybuch to koniec powstania a nie znamy początku. Bóg jako informacja pojawił się samoistnie, potem powstała informacja słowo boże, energia, rezonas i kreacja a na końcu wybuch. Świat na poczatku był informacją. Katolicy, rolnicy czyli cynicy tłumaczą to na różne mechaniczne sposoby aby zachować niewolnictwo i ciemnotę z kultem pracy.  
 Religia toczy koła nie naucza. Znakiem tajnym każdej religi jest znak koła. Ile kół tyle religii i toczenia kół. Religia i historia toczy koła.
 Nowości powstają z kwantów. 
+Koło się powtarza i nic nowego po za wojną i marją matką nic nowego nie wymyśliło. To tak jak zrobić kopie kobiety z obrazu o tych samych cechach. Jeśli robić kopie to z innymi cechami od orginału. Np.: orginał potrafi tylko 1 czyność a kopia potrafi wszystko do tego tworzy nowe rzeczy. Kto się modli ten się stale powtarza. 
