@@ -52,3 +52,5 @@ Drukarka kwantowa to kasza mana w wersji technicznej.
 Drukarke kwantową można podłączyć pod drona lub satelite i jak w grach wideo stawiać mega lityczne konstrukcje kosztem energii z wiązki energetycznej bez użycia siły rąk. Wystarczy dorobić panel sterowania. 
 Drukarka kwantowa może też pracować z dronem jako anihilator i może sprawić aby ktoś zniknoł kwantowo bez śladu. Czy kwantowo wyburzać konstrukcje lub naprawiać bez siły rąk. 
 Jak się spali płytka elektroniki można zrobić promień naprawiający kwantowy. 
+Ten kod może stworzyć maszyny samo replikujące się. Ten kod może stworzyć maszyne ktora jest w stanie wszystko produkować a obrubką zajmuje się komputer z SI lub operator komputera grafik. 
+Sieć neuronowa uniwersalna kwantowa samoucząca się może posiąść zdolności magiczne takie jak telekineza, teleportacja czy replikacja czy elektrokineza czyli pojęcie mocy dzięki SI. Na to pozwala fizyka kwantowa. Do mocy boga wystarczy sieć kwantowa neuronowa. 
