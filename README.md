@@ -47,3 +47,4 @@ Co do elektroniki suma kontrolna i klucz 1 rozwoy z wykorzystaniem fizyki kwanto
 Drukarka kwantowa może pracować jak niszczarka kwantowa lub drukarka kwantowa.
 Drukarka kwantowa może też działać jak rekonstruktor kwantowy może wyprodukować kwantowo: krew, organy, przywrucić do żywych. Jest to przenośna kwantowa uniwersalna fabryka USB. 
 Poniższy kod jest do celów edukacyjnych. 
+Kwanty dają możliwość opracowania technik magicznych jak urządzenia magiczne przedmioty o pewnych właściwościach jak mydło samo zagęszczające się samo replikujące się czyli opakowanie bez dna. Sama drukarka ma duże możliwości ale kod drukarki można rozbudować np.: dodać możliwość druku zdjęcia w 3D do naszej rzeczywistości z komputera jako opjce czy dodatkową opcje druku projektu z autocad bez obrubki materiału i kupowania materiału na rynku wystarczy mieć darmową energie.   
