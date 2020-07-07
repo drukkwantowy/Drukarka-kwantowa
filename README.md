@@ -51,3 +51,4 @@ Kwanty dają możliwość opracowania technik magicznych jak urządzenia magiczn
 Drukarka kwantowa to kasza mana w wersji technicznej. 
 Drukarke kwantową można podłączyć pod drona lub satelite i jak w grach wideo stawiać mega lityczne konstrukcje kosztem energii z wiązki energetycznej bez użycia siły rąk. Wystarczy dorobić panel sterowania. 
 Drukarka kwantowa może też pracować z dronem jako anihilator i może sprawić aby ktoś zniknoł kwantowo bez śladu. Czy kwantowo wyburzać konstrukcje lub naprawiać bez siły rąk. 
+Jak się spali płytka elektroniki można zrobić promień naprawiający kwantowy. 
