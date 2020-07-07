@@ -49,3 +49,5 @@ Drukarka kwantowa może też działać jak rekonstruktor kwantowy może wyproduk
 Poniższy kod jest do celów edukacyjnych. 
 Kwanty dają możliwość opracowania technik magicznych jak urządzenia magiczne przedmioty o pewnych właściwościach jak mydło samo zagęszczające się samo replikujące się czyli opakowanie bez dna. Sama drukarka ma duże możliwości ale kod drukarki można rozbudować np.: dodać możliwość druku zdjęcia w 3D do naszej rzeczywistości z komputera jako opjce czy dodatkową opcje druku projektu z autocad bez obrubki materiału i kupowania materiału na rynku wystarczy mieć darmową energie.   
 Drukarka kwantowa to kasza mana w wersji technicznej. 
+Drukarke kwantową można podłączyć pod drona lub satelite i jak w grach wideo stawiać mega lityczne konstrukcje kosztem energii z wiązki energetycznej bez użycia siły rąk. Wystarczy dorobić panel sterowania. 
+Drukarka kwantowa może też pracować z dronem jako anihilator i może sprawić aby ktoś zniknoł kwantowo bez śladu. Czy kwantowo wyburzać konstrukcje lub naprawiać bez siły rąk. 
