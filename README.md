@@ -69,3 +69,4 @@ Teoria wielkiego wybuchu nie tłumaczy jak postwł świat wielki wybuch to konie
 Religia toczy koła nie naucza. Znakiem tajnym każdej religi jest znak koła. Ile kół tyle religii i toczenia kół. Religia i historia toczy koła.
 Nowości powstają z kwantów. 
 Koło się powtarza i nic nowego po za wojną i marją matką nic nowego nie wymyśliło. To tak jak zrobić kopie kobiety z obrazu o tych samych cechach. Jeśli robić kopie to z innymi cechami od orginału. Np.: orginał potrafi tylko 1 czyność a kopia potrafi wszystko do tego tworzy nowe rzeczy. Kto się modli ten się stale powtarza. 
+Jak nie wyjdzie koło to cynicznie watykan powie że to nie możliwe że to fikcja blokując to radiem lub wyśmiewając czy kończy się to inkwizycją. Koło jest dla prostych ludzi i istot. Co do pism świętych zapisanie sygnału ksiąg sięwietych w audio wygeneruje sinusoidę stale to samo koło więc święci niech kupiom sobie kuło i walną się w czoło. Nic nowego nie wymyślają.   
