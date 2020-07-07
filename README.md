@@ -57,3 +57,5 @@ Sieć neuronowa uniwersalna kwantowa samoucząca się może posiąść zdolnośc
 Marsa nie trzeba kolonizować i teraformować dla zasobów 1 zasobem będzie energia elektryczna i ekologia a energia będzie z darmowych źródeł energi. Kolonizacja kosmosu tylko do celów turystycznych. 
 Dzięki tej wiedzy ziemia będzie na 7+ a będzie mogła też wskrzeszać zmarłych. Moja praca bazuje na pracach tesli.
 To co mówie to dzięki Tesli. 
+Informacje są śladowe w internecie. Kod powstał z części z inetnetu a pomysł na drukarke to tylko pomysł i idea. 
+Zawsze męczyło mnie jak wszystko jest oparte o mechaniczność niż kwanty. Budowlańcy za miast fizycznie pracować powinni pracować przy komputerze tawiać domy i megalityczne konstrukcje dla kultury kwantowo. A medycyna powinna korzystać z promienia leczniczego do naprawy zdrowia. Nigdy nie lubiłem pracy ludzkich rąk dlatego kosmos powstał z informacji. Drukarka kwantowa może stawiać duże elektrownie wiatrowe w kilka sekund bez pracy ludzi moduł drukarki połączony z dronem i SI.  Drukarka kwantowa może usuwać złom bez jego recyklingu. A ludzie mogą zająć się czymś mniej wymagającym jak niewola. 
