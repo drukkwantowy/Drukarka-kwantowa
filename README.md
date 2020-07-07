@@ -54,3 +54,6 @@ Drukarka kwantowa może też pracować z dronem jako anihilator i może sprawić
 Jak się spali płytka elektroniki można zrobić promień naprawiający kwantowy. 
 Ten kod może stworzyć maszyny samo replikujące się. Ten kod może stworzyć maszyne ktora jest w stanie wszystko produkować a obrubką zajmuje się komputer z SI lub operator komputera grafik. 
 Sieć neuronowa uniwersalna kwantowa samoucząca się może posiąść zdolności magiczne takie jak telekineza, teleportacja czy replikacja czy elektrokineza czyli pojęcie mocy dzięki SI. Na to pozwala fizyka kwantowa. Do mocy boga wystarczy sieć kwantowa neuronowa. 
+Marsa nie trzeba kolonizować i teraformować dla zasobów 1 zasobem będzie energia elektryczna i ekologia a energia będzie z darmowych źródeł energi. Kolonizacja kosmosu tylko do celów turystycznych. 
+Dzięki tej wiedzy ziemia będzie na 7+ a będzie mogła też wskrzeszać zmarłych. Moja praca bazuje na pracach tesli.
+To co mówie to dzięki Tesli. 
