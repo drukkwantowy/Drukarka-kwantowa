@@ -81,3 +81,5 @@ Ludzie za bogów uwarzają kogoś kto macha toporkiem lub był rzemieśnikiem i 
 Tych za których uwarzamy za bogów bogami nie byli bogiem był ten kto władał kwantami. Oni stworzyli ludzi z gentyki. 
 1 cywilizacja mogła powstać z kwantów, meteoryt kwantowo powstał z DNA i uderzył w planete i tak była 1 cywilizacja inne cywilizacje znają świat tylko od strony mechanicznej wykucia przez wielkie mrówki. 
 Bóg istniał ale nie chciał z nikim mieć kontaktu dla boga jesteśmy tylko eksperymentem. 
+Drukarka kwantowa tłumaczy mity takie jak: lampa aladyna, maszyna mikołaja czy pozytywny spełniacz życzeń. Czym był duch z układu lampy był SI. 
+Kto ma drukarkę kwantową może spełnić swoje marzenia bez pracy.  
