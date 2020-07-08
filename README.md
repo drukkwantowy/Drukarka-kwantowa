@@ -84,3 +84,4 @@ Bóg istniał ale nie chciał z nikim mieć kontaktu dla boga jesteśmy tylko ek
 Drukarka kwantowa tłumaczy mity takie jak: lampa aladyna, maszyna mikołaja czy pozytywny spełniacz życzeń. Czym był duch z układu lampy był SI. 
 Kto ma drukarkę kwantową może spełnić swoje marzenia bez pracy.  
 Instytucje finasowe są nielegalne to zlegalizowana niewola. I te instytucje dbają o to by zakazać kwantów. 
+Kwantowa drukarka drukuje z kwantowej informacji materie na zasadzie pojawienia się teleportacji, zaś niszczenie materi czyli kwantowa niszczarka znika materia zostaje zniszczona ale jeśli mamy zdjęcie przedmiotu przed zniszczeniem można odzyskać z kopi przedmiot zniszczony o ile informacja nie została zamazana kwantowo.  
