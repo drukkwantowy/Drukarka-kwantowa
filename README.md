@@ -86,4 +86,4 @@ Kto ma drukarkę kwantową może spełnić swoje marzenia bez pracy.
 Instytucje finasowe są nielegalne to zlegalizowana niewola. I te instytucje dbają o to by zakazać kwantów. 
 Kwantowa drukarka drukuje z kwantowej informacji materie na zasadzie pojawienia się teleportacji, zaś niszczenie materi czyli kwantowa niszczarka znika materia zostaje zniszczona ale jeśli mamy zdjęcie przedmiotu przed zniszczeniem można odzyskać z kopi przedmiot zniszczony o ile informacja nie została zamazana kwantowo.  
 Automatyka toczenia kół to interakcja człowieka z przedmiotem. Zaś kwanty i SI to automatyka uniwersalna do której nie trzeba budować do każdej części odzielnej maszyny i narzędzi nie ma interakcji człowieka z maszyną. Religijni to tokarze kochają koniec wierzą w raj. 
-Szmelcem jest złoto i praca rąk istot żywych, a złotem technologie kwantowe. 
+Szmelcem jest złoto i praca rąk istot żywych wraz z kołem, a złotem technologie kwantowe. 
