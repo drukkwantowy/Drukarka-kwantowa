@@ -94,3 +94,4 @@ Jaki jest podział? Zły wiedział co to kwanty dobry wiedział co to koło wię
 Warto napisać biblie fizyki opisującej kodem matematycznym fizykę i historie na wypadek jak by przybył cudak i mówi że pokarze cuda a w praktyce mamy dowód że cuda są klasyczne więc próbuje siać ciemnotę robić religie.  
 Ludzie z jakimiś wadami umysłowymi będą wzdychać przy fizyce kwantowej bo są cuda.  To tylk fizyka nic więcej. 
 Jak przyjdzie cudak co powiem jam jest bóg to proponuje powiedzieć mówisz o teleportacji kwantowej i jej magii jak i o jarmarcznych sztuczkach. I drukarka kwantowa to koniec nauki. Gdzie mamy dowód na to że osoba jest psychicznie chora. 
+Upośledzeni mówią na widok kwantów ale czad teleportacja kwantowa. 
