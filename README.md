@@ -83,3 +83,4 @@ Tych za których uwarzamy za bogów bogami nie byli bogiem był ten kto władał
 Bóg istniał ale nie chciał z nikim mieć kontaktu dla boga jesteśmy tylko eksperymentem. 
 Drukarka kwantowa tłumaczy mity takie jak: lampa aladyna, maszyna mikołaja czy pozytywny spełniacz życzeń. Czym był duch z układu lampy był SI. 
 Kto ma drukarkę kwantową może spełnić swoje marzenia bez pracy.  
+Instytucje finasowe są nielegalne to zlegalizowana niewola. I te instytucje dbają o to by zakazać kwantów. 
