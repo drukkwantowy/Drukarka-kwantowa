@@ -80,3 +80,4 @@ Ludzie pamiętają 1 zdarzenie z mitów o kosmitach prometeuszu. Jak cywilizacja
 Ludzie za bogów uwarzają kogoś kto macha toporkiem lub był rzemieśnikiem i toczył koła bo wymyślił teorie o meteorycie i ewolucji jak i niewoli bez wyjaśnienia że obcy mieli działo antygrawitacyjne do uderzania w ziemie z dna aby taka teoria była jak prawdziwa zasłaniając prawde o kwantowej fizyce. 
 Tych za których uwarzamy za bogów bogami nie byli bogiem był ten kto władał kwantami. Oni stworzyli ludzi z gentyki. 
 1 cywilizacja mogła powstać z kwantów, meteoryt kwantowo powstał z DNA i uderzył w planete i tak była 1 cywilizacja inne cywilizacje znają świat tylko od strony mechanicznej wykucia przez wielkie mrówki. 
+Bóg istniał ale nie chciał z nikim mieć kontaktu dla boga jesteśmy tylko eksperymentem. 
