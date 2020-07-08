@@ -77,3 +77,6 @@ Warto powiedzieć że słynne powtarzane jak koło wypowiedzi racjonalistów co 
 Gwóźdź do trumny ksiąg świetych kołowych Jeśli ktoś myśli że święci są jaśnie oświeceni to taki cytat: "Jaśnie oświecona, wytoczona palcem robiona".
 Styl tokarski toczeniowy to rozwiązania toster na grzałkę bez skomplikowanej regulacji. 
 Ludzie pamiętają 1 zdarzenie z mitów o kosmitach prometeuszu. Jak cywilizacja techniczna wysłała razem z meteorem DNA w kierunku ziemi. 1 cywilizacja techniczna narodziła się z kwantów kolejne pmaietają bo były sztuczne proces ewolucji czyli powstanie z meteorytu. 
+Ludzie za bogów uwarzają kogoś kto macha toporkiem lub był rzemieśnikiem i toczył koła bo wymyślił teorie o meteorycie i ewolucji jak i niewoli bez wyjaśnienia że obcy mieli działo antygrawitacyjne do uderzania w ziemie z dna aby taka teoria była jak prawdziwa zasłaniając prawde o kwantowej fizyce. 
+Tych za których uwarzamy za bogów bogami nie byli bogiem był ten kto władał kwantami. Oni stworzyli ludzi z gentyki. 
+1 cywilizacja mogła powstać z kwantów, meteoryt kwantowo powstał z DNA i uderzył w planete i tak była 1 cywilizacja inne cywilizacje znają świat tylko od strony mechanicznej wykucia przez wielkie mrówki. 
