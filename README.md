@@ -97,3 +97,4 @@ Jak przyjdzie cudak co powiem jam jest bóg to proponuje powiedzieć mówisz o t
 Upośledzeni mówią na widok kwantów ale czad teleportacja kwantowa. 
 Fizyka wszędzie jest taka sama różni się tylko kodowanie język. W kosmosie nie ma czego szukać jest na ziemi wystarczy drukarka kwantowa jeśli braknie surowców. Świat można poznać z ziemi bez podróżowania. A kolonizacja to strata czasu jeszcze ktoś zginie. Jeśli ktoś ma kolonizować kosmos to bogaci bo i tak nie są potrzebni na ziemi. Ziemia bez pieniędzy by innaczej działała. 
 Jak działać z jarmarcznym naciąganiem od bio rezonatorów i innych błyskotek? Najlepiej powidzieć a fizyka zwykła żadna nowość. Pewnie zaraz pojawi się stado naciągaczy i powie oszalałem cuda robie. Najlepiej powiedzieć druk kwantowy klasyka żadna nowość.  
+Do nieba do matrixa idą upośledzeni ludzie co chcą na codzień mieć cuda za darmo bo na ziemi się nieche wyliczyć matematycznie jak ową fizykę pozyskać. 
