@@ -127,3 +127,4 @@ Kwanty mogą opracować nową mode jak i wygenerować lepszy i ładniejszy czysz
 Sygnałem kwantowym można zmieniać czas i przestrzeń jak i kontrolować materie
 Kwanty mogą służyć do zmiany historii jak maszyna czasu na ekranie chronowizor czy maszyna czasu przenosząca ludzi do innych czasów.
 W kwantach jest moc magiczna. W fizyce koła ciemnota. 
+Kwanty mogą otworzyć droge do holografi i jej magii. 
