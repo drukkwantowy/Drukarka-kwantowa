@@ -116,3 +116,6 @@ Jeśli ktoś chce czytać ciekawostki w gazetach niech postawi na kwanty, osoba 
 Kwanty to też napędy antygrawitacyjne jak i silniki szybsze od światła czy eliminowanie koła.
 Zbroja iron mena na kwantach może generować paliwo ciekłe do silników odrzutowych bez zbiorników lub energię do silników jonowych.
 Kwanty są uniwersalne jak leksykon historyczny ogama infinitium z skyrim.  
+Kwanty można wykorzystać w neurozłączu pasywnym na USB do EEG i BCI.
+Kwanty można stosować w urządzeniach do medycyny kwantowej. Kwanty można stosować do urządzeń oszczędzających energię elektryczną jak i ją produkującą z rezonasu w nieskończoność z nakładania się 2 sygnałów generowany jest sygnał z elektronami bez pobierania z otoczenia wystarczy tylko energia dostarczona do układu zasilania jak akumulator. 
+Kwanty są czyste i nie toksyczne jak i ekologiczne do tego skuteczniejsze od tradycyjnych opartych o koło mechanicznych konwersji energi czy materiału który kochają tokarze. 
