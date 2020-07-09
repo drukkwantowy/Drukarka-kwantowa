@@ -124,3 +124,6 @@ Kwanty mogą posłużyć do opracowania promienia do generowania materii w budow
 Kwanty mogą posłużyć do opracowania promienia naprawiającego wszystko. 
 Możliwości kwantów są większe od czasów wynalezienia koła. Koło to archaik do lekcji historii. 
 Kwanty mogą opracować nową mode jak i wygenerować lepszy i ładniejszy czyszczy świat bez wojen i zła. 
+Sygnałem kwantowym można zmieniać czas i przestrzeń jak i kontrolować materie
+Kwanty mogą służyć do zmiany historii jak maszyna czasu na ekranie chronowizor czy maszyna czasu przenosząca ludzi do innych czasów.
+W kwantach jest moc magiczna. W fizyce koła ciemnota. 
