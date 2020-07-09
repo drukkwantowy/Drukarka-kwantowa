@@ -119,3 +119,8 @@ Kwanty są uniwersalne jak leksykon historyczny ogama infinitium z skyrim.
 Kwanty można wykorzystać w neurozłączu pasywnym na USB do EEG i BCI.
 Kwanty można stosować w urządzeniach do medycyny kwantowej. Kwanty można stosować do urządzeń oszczędzających energię elektryczną jak i ją produkującą z rezonasu w nieskończoność z nakładania się 2 sygnałów generowany jest sygnał z elektronami bez pobierania z otoczenia wystarczy tylko energia dostarczona do układu zasilania jak akumulator. 
 Kwanty są czyste i nie toksyczne jak i ekologiczne do tego skuteczniejsze od tradycyjnych opartych o koło mechanicznych konwersji energi czy materiału który kochają tokarze. 
+Kwanty mogą rozwiązać problem CO2 jak i innych substancji szkodliwych, dziury ozonowej. Można dzięki nim pozyskać filtry i katalizatory kwantowe które zamieniają spaliny w paliwo lub generują paliwo z formy cyfrowej do fizycznej i odwrotnie i zasilają silniki odrzutowe. Kwanty mogą pozwolić na zapisanie fizycznej struktury do postaci cyfrowej.
+Kwanty mogą posłużyć do opracowania promienia do generowania materii w budowlance do mega konstrukcji.
+Kwanty mogą posłużyć do opracowania promienia naprawiającego wszystko. 
+Możliwości kwantów są większe od czasów wynalezienia koła. Koło to archaik do lekcji historii. 
+Kwanty mogą opracować nową mode jak i wygenerować lepszy i ładniejszy czyszczy świat bez wojen i zła. 
