@@ -165,3 +165,4 @@ Po co komu politycy co obiecują i słowa anulują, raj zamieniają w piekło.
 Do replikacji można użyć laserów i rezonasu laserowego. 
 Można do tego pancerza wykorzysać uniwersalną kwantową SI.
 Urządzenie kopi pancerza mark 85 może zintegrować się z ciałem lub je ulepszyć czy naprawić. 
+Kopia mark 85 kwantowej wersji cyfrowej to rodzaj uniwersalnego konstruktora replikatora materii np.: płynego metalu. 
