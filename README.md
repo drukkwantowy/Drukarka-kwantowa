@@ -162,3 +162,4 @@ Ekonomia i gra w loto czy na giełdzie w obliczu możliwości kwantyzacji życia
 Gotówka by była w formie papierowej lub cyfrowej jako karta płatnicza i była by tylko do zatwierdzania transakcji bo w erze kwantów i drukarek kwantowych wystarczy coś pobrać z internetu i wydrukować a że nie trzeba pracować a wszystko jest w wersji cyfrowej i jest darmowa energia to gotówka jest za darmo. Magazyny sklepowe to drukarki kwantowe. Niewolnictwo zniknie a 1 jedyną wartość będzie miało ludzkie życie, energia i informacja z kąt pochodzimy. 
 Przenosząc wiedzę z zaświatów i co tam jest może być to samo na ziemi co tam. A polityka mnie nie interesuje kto wygra kto przegra kto jest ekonomistom. Kłutnie są dla tych co nie mają swojego życia i ci idą na wybory. 
 Po co komu politycy co obiecują i słowa anulują, raj zamieniają w piekło.  
+Do replikacji można użyć laserów i rezonasu laserowego. 
