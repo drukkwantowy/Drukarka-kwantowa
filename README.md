@@ -163,3 +163,5 @@ Gotówka by była w formie papierowej lub cyfrowej jako karta płatnicza i była
 Przenosząc wiedzę z zaświatów i co tam jest może być to samo na ziemi co tam. A polityka mnie nie interesuje kto wygra kto przegra kto jest ekonomistom. Kłutnie są dla tych co nie mają swojego życia i ci idą na wybory. 
 Po co komu politycy co obiecują i słowa anulują, raj zamieniają w piekło.  
 Do replikacji można użyć laserów i rezonasu laserowego. 
+Można do tego pancerza wykorzysać uniwersalną kwantową SI.
+Urządzenie kopi pancerza mark 85 może zintegrować się z ciałem lub je ulepszyć czy naprawić. 
