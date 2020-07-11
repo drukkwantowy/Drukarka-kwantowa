@@ -166,4 +166,4 @@ Do replikacji można użyć laserów i rezonasu laserowego.
 Można do tego pancerza wykorzysać uniwersalną kwantową SI.
 Urządzenie kopi pancerza mark 85 może zintegrować się z ciałem lub je ulepszyć czy naprawić. 
 Kopia mark 85 kwantowej wersji cyfrowej to rodzaj uniwersalnego konstruktora replikatora materii np.: płynego metalu. 
-Drukarką kwantową można drukować każdą materie, przedmioty, czary kwantowe oparte o teleportacje kwantową jak i drukować pole siłowe. 
+Drukarką kwantową można drukować każdą materie, przedmioty, czary kwantowe oparte o teleportacje kwantową jak i drukować pole siłowe czy kamuflarz optyczny pokrywający ciało w postaci pola siłowego z niewidzialnością.   
