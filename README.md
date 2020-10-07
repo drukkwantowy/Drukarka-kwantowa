@@ -195,3 +195,13 @@ To jest wiedza do klucza i technologii fragmentu Edenu i rozwiązania głupich p
 Człowiek potrzebuje 3 rzeczy wszystko opiera się o 3: jedzenia, piepszenia i rozmnażania się. Drukarki kwantowe mogą generować materie jak i technologie Edenu. Druk kwantowy może rozwiązać problemy ludzi drapieżników może powstać technologia na wypadek gdyby tradycyjne sposoby produkcji poprzez konwersje mechaniczną zawiodły zostaje konwersja energii na materie czyli jak sklep ma taki replikator materii na magazynie zawsze ma wszystko świerze i może polegać na sobie jeśli logistyka zawiedzie.  
 Dla katolików śmierć i droga duszy z planety i świata do inego wszechświata jest romantycznie święta jak bzdurna droga krzyżowa. Możliwość otworzenia tunelu czasoprzestrzennego do dysku twardego świata wirtualnego komputera kwantowego czy innego świata za pomocą tunali czasowych czy teleportacji rezonansowej jest prosta i otwiera droge do rekonstruktora kwantowego bez konieczności utraty danych jako nowa osoba omijając tym samym ponowne rodzenie się jako ktoś inny. Reinkarnacja to katolicka herezja spamerów z Watykanu.
 Do informatyki nalerzy wprowadzić elastycznego kubita polega to na tym że zegar fizyczny procesora jest zmienny od 2,6GHz - 4.6GHz a komputer operuje na elastycznych wirtualnych kubitach więć wirtualnie może operować na 10 JHz marnując tylko 45W. 
+Jak by wyglądała ludzkość z 7 poziomu w skali rozwoju cywilizacji?
+Taka cywilizacja potrafiła by otworzyć zmarłego z jego DNA z kopi zapasowej w komputerze lub z resztek DNA komputerowo otworzyć kwantami człowieka odbudować i z kopi zapasowej otworzyć nawet jak ciało jest spalone. Dzięki drukarkom kwantowym. 
+Cywilizacja korzysta z komputerów kwantowych na co dzień.
+Cywilizacja tworzy sprzęt medyczny leczący ciało cyfrowo do fizycznej postaci dzięki nanotechnologii zwiększając wzrost czy reperując DNA.
+Taka cywilizacja ma dostęp do cyfrowych ulepszeń DNA np.: telekinezy czy innych mocy dzięki nanotechnologii.
+Człowiek nauczy się dzięki AI zapisywać swoje DNA na dysku komputera jak i odtworzyć DNA z dysku komputera do rzeczywistości.
+Rozbudowane systemy przenoszenia świadomości z ciałem do komputera Wi-Fi do cyfrowego świata dla rozrywki i odwrotnie bez transferu umysłu to daje teleportacja kwantowa. 
+Dobrze to opisuje gra skyrim gdzie 1 ludzie Dedry potrafiły nanotechnologią odtwarzać swoje ciało i wracać dalej straszyć ludzi.
+7 poziom to gównie AI i digitalizacja kreacja za pomocą komputera słowo zamieniane w przedmiot.
+Tematów na powieści może być parę.: Cywilizacja 7 poziomu, Ziemscy cyfrowi bogowie itp.
