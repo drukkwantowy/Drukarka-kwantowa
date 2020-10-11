@@ -209,3 +209,4 @@ Drukarką kwantową można wzmacniać istniejące materiały aby były mocniejsz
 Klasyczne materiały można wzmacniać energetycznie aby były odporne na fizykę wystarczy mieć AI i fale radiowe.
 Wystarczy wybić z orbity 1 elektron aby były zmiany nowotworowe i zaburzenia w DNA, DNA zmienia swoją informacje.
 Znając tą własność można energetycznie programować materie tak by miała nowe parametry. A programuje się AI i falom radiowom.
+Jak wiedźma jest taka mądra od informatyka to niech wykorzysta swój talent w elektronice.
