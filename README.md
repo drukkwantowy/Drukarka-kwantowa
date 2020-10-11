@@ -207,3 +207,5 @@ Dobrze to opisuje gra skyrim gdzie 1 ludzie Dedry potrafiły nanotechnologią od
 Tematów na powieści może być parę.: Cywilizacja 7 poziomu, Ziemscy cyfrowi bogowie itp.
 Drukarką kwantową można wzmacniać istniejące materiały aby były mocniejsze czyli wzmocnić to co człowiek zbudował ręcznie aby nie ulegało uszkodzeniom. Ale drukarka kwantowa musi mieć AI i dosyć mocny komputer operujący na bitach silny na tyle i na tyle mały aby pomieścić go w telefonie. Warto dodać że klasyczny komputer oparty o krzem może operować na teleportacji kwantowej między procesorami bez konieczności budowy specjalnego komputera opartego o inne rozwiązania. Poprawna nazwa na bit klasyczny to bit a na fizykę kwantów to bit kwantowy.
 Klasyczne materiały można wzmacniać energetycznie aby były odporne na fizykę wystarczy mieć AI i fale radiowe.
+Wystarczy wybić z orbity 1 elektron aby były zmiany nowotworowe i zaburzenia w DNA, DNA zmienia swoją informacje.
+Znając tą własność można energetycznie programować materie tak by miała nowe parametry. A programuje się AI i falom radiowom.
