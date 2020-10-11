@@ -205,3 +205,5 @@ Rozbudowane systemy przenoszenia świadomości z ciałem do komputera Wi-Fi do c
 Dobrze to opisuje gra skyrim gdzie 1 ludzie Dedry potrafiły nanotechnologią odtwarzać swoje ciało i wracać dalej straszyć ludzi.
 7 poziom to gównie AI i digitalizacja kreacja za pomocą komputera słowo zamieniane w przedmiot.
 Tematów na powieści może być parę.: Cywilizacja 7 poziomu, Ziemscy cyfrowi bogowie itp.
+Drukarką kwantową można wzmacniać istniejące materiały aby były mocniejsze czyli wzmocnić to co człowiek zbudował ręcznie aby nie ulegało uszkodzeniom. Ale drukarka kwantowa musi mieć AI i dosyć mocny komputer operujący na bitach silny na tyle i na tyle mały aby pomieścić go w telefonie. Warto dodać że klasyczny komputer oparty o krzem może operować na teleportacji kwantowej między procesorami bez konieczności budowy specjalnego komputera opartego o inne rozwiązania. Poprawna nazwa na bit klasyczny to bit a na fizykę kwantów to bit kwantowy.
+Klasyczne materiały można wzmacniać energetycznie aby były odporne na fizykę wystarczy mieć AI i fale radiowe.
