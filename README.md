@@ -211,3 +211,4 @@ Wystarczy wybić z orbity 1 elektron aby były zmiany nowotworowe i zaburzenia w
 Znając tą własność można energetycznie programować materie tak by miała nowe parametry. A programuje się AI i falom radiowom.
 Jak wiedźma jest taka mądra od informatyka to niech wykorzysta swój talent w elektronice.
 Ciekawostka to prosta droga do promieni śmierci: promienia gamma z promieniem niszczącym atomy czyli odwrotność drukarki kwantowej czy promienia zmniejszającego i powiększającego to przykład na ciekawe doświadczenia i pomysły na broń dla wojska. Czy na promień zamieniający wszystko w złoto. Sekret jest w dodawaniu i odejmowaniu powłok elektronowych jak i innych części atomów.
+Drukarką w wersji nano w DNA można wytworzyć rezonans ujemy aby sprawić by ktoś był niewidzialny czy drukować do DNA pożywienie, możliwości są ogromne.
