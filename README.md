@@ -221,3 +221,4 @@ Programowanie wody z AI Alexa:
 -Woda lecznicza na wszystkie choroby np.: odmładzanie i na odporność DNA
 -Woda na zasypanie i uspokojenie
 -Woda z witaminami i minerałami dla dzieci, mleko od krowy też można programować.
+Wode można programować jako lek na każdą chorobe lub tym myśleniem programować AI DNA radiowo dzisiejsze leki są tak skuteczne jak reklama środków typu gripex. Dobry lek działa po 1 minucie a placebo działa cyklicznie zaleczając chorobe po cyklu stosowania wielu razy kuracji. Lekarze nie leczą a bawią się naszym zdrowiem. 
