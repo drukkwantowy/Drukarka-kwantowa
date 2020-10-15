@@ -215,3 +215,4 @@ Drukarką w wersji nano w DNA można wytworzyć rezonans ujemy aby sprawić by k
 Strukture szkła można zmienić AI kwantową falami radiowymi na elastyczne szkło. Tą drogą można z atomów zrobić nano drukarki kwantowe z AI do drukowania cieczy w szklance w nieskończoność czyli szklanka bez dna ciecz się skończy po czasie się napełni nową.
 Stół do zaklinania wystarczy wymyśleć farbę nano tech o właściwościach magii energią aby myślą na takim stole pomalowanym tą farbą zmienić właściwości materii.
 DNA ma możliwość rozbudowy o dodanie drukarki kwantowej aby władać mocom telekineza, pioruny, druk kwantowy, czytanie myśli.
+Można tą drogą stworzyć elektronike lub spinotroniczne AI szkło które programuje ciecz w celu leczenia choroby np.: wady serca czy wady wzroku przeprogramowując AI zwykłą wode.  
