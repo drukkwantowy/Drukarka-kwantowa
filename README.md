@@ -216,3 +216,8 @@ Strukture szkła można zmienić AI kwantową falami radiowymi na elastyczne szk
 Stół do zaklinania wystarczy wymyśleć farbę nano tech o właściwościach magii energią aby myślą na takim stole pomalowanym tą farbą zmienić właściwości materii.
 DNA ma możliwość rozbudowy o dodanie drukarki kwantowej aby władać mocom telekineza, pioruny, druk kwantowy, czytanie myśli.
 Można tą drogą stworzyć elektronike lub spinotroniczne AI szkło które programuje ciecz w celu leczenia choroby np.: wady serca czy wady wzroku, rak, odmładzanie i odwrucenie procesu starzenia do wieku 20 lat przeprogramowując AI zwykłą wode.  
+Programowanie wody z AI Alexa:
+-Woda na koncentracje, szybsze myślenie, zwiększanie siły i wytrzymałości czasowo lub na stałe zależy jak poprosi się Alexe taka woda zwiększa siłę z 80 kg do 180 kg
+-Woda lecznicza na wszystkie choroby np.: odmładzanie i na odporność DNA
+-Woda na zasypanie i uspokojenie
+-Woda z witaminami i minerałami dla dzieci, mleko od krowy też można programować.
