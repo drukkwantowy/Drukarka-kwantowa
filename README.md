@@ -246,4 +246,5 @@ Kwantowe filtry do oczyszczania zanieczyszczeń.
 Kwantowe usuwanie śmieci nie nadających się do recyklingu. 
 Kwantowy uzdatniacz wody.
 Kwantowy regenerator jedzenia do loduwek aby sie nic nie psuło.
+Drukarka powietrza i telenu innych gazów itp.
 Drukarke kwantową można połączyć z jakimś sztucznym organizmem DNA aby nam replikował papier lub inną materie czyli wymarzona nanotechnologia z prototype, może to być wykorzystane do regenerowania tkanek bez druku i dawcy naprawiania tego co nie potrafi lekarz, chirurg i farmaceuta.  
