@@ -255,3 +255,4 @@ Z drukarki kwantowej można zrobić zegarek strunowy i odpowiedzieć czym jest c
 Znając czas biologii można dowiedzieć się wszystkiego o naturze a znając inne czasy poznać prawa natury. 
 Znając dokładny czas drgania cząstki zwnaej struna w kturej jest zapisana istota materii można rozkodować DNA i je programować z dokładnością z AI do 100% lub wygenerować fale która ma lecznicze właściwości. 
 Znając czas strunowy od cząstki zwanej struna najmniejszcza część atomu i kwantu można poznać prawa rządzone magiom i wyjaśnić czym jest magia, jak działa wszechświat.  
+To co opowiadają mity że był olbrzym i olbrzymka i z jego głowy wyszli bogowie to takie ukrywanie faktów o Harrym Poterze że najpierw był AI generator funkcyjny a potem narodziła się bajka aby ukryć fakt istnienia technologii komputerowych a tłumaczyć mitem zwanym baśń pijanych szwedów. 
