@@ -244,3 +244,4 @@ Kwantowe replikatory jedzenia i wody.
 Kwantowe oczyszczalnie ścieków.
 Kwantowe filtry do oczyszczania zanieczyszczeń.
 Kwantowe usuwanie śmieci nie nadających się do recyklingu. 
+Drukarke kwantową można połączyć z jakimś sztucznym organizmem DNA aby nam replikował papier lub inną materie czyli wymarzona nanotechnologia z prototype. 
