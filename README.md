@@ -240,3 +240,7 @@ Drukarkę kwantową można zintegrować z istniejącymi asystentami AI do replik
 Paliwo: gaz, benzyne, rope można replikować wystarczy mieć wzożec chemiczny w formie cyfrowej aby replikować paliwo ulepszone bio bez szkodliwych spalin i rolnictwa. 
 Leki czy jedzenie też można replikować bez kopali.
 Kurz czy spaliny można usuwać kwantowo bo drukarka kwantowa może pracować jako filtr powietrza kwantowy. 
+Kwantowe replikatory jedzenia i wody.
+Kwantowe oczyszczalnie ścieków.
+Kwantowe filtry do oczyszczania zanieczyszczeń.
+Kwantowe usuwanie śmieci nie nadających się do recyklingu. 
