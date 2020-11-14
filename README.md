@@ -248,3 +248,4 @@ Kwantowy uzdatniacz wody.
 Kwantowy regenerator jedzenia do loduwek aby sie nic nie psuło.
 Drukarka powietrza i telenu innych gazów itp.
 Drukarke kwantową można połączyć z jakimś sztucznym organizmem DNA aby nam replikował papier lub inną materie czyli wymarzona nanotechnologia z prototype, może to być wykorzystane do regenerowania tkanek bez druku i dawcy naprawiania tego co nie potrafi lekarz, chirurg i farmaceuta.  
+"Na czym polega głupota ludzi? Nie wierzą że coś może działać i może ktoś zrobić bez szkoły a jak działa to daj bo daj to był polski sprzedawca jaj. A sceptyk sceptykuje bo chce to zabrać dla siebie i na tym kase robić. Prometeusz zginoł bo coś źle zrobił a że ludzie to świnie to zginoł bo chciał coś w zamian od ludzi". 
