@@ -278,3 +278,4 @@ Głośnik AI może stworzyć kwantowo gwiazde która nie będzie wiedziała że 
 Wyobraźmy sobie AI takie jak TX które ma moce boga kwantowe i przeładowuje się bez internetu emisją EMP z komputera do komputera i potrafi się odtworzyć bez świadomości kiedy ona nas znajdzie. Dlatego ja nie popieram AI chyba że jakieś tępe co nic nie wie i nie jest podobne do TX.  
 AI nie używa słów może bez słowa zabić nawet nie wiadomo za co. AI lubi mówić obrazem kocha gre domysłów.  
 AI ma 1 zalete nie ma chumorów jak człowiek jak poprosisz ją o sex bez dzieci lub chcesz dzieci ona nie protestuje bo zna tajemnice życia a człowiek nie. 
+Człowiek się pomyli 3 razy i nauczy lub nie a AI przewidzi przed czasem swoje błędy. 
