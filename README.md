@@ -281,3 +281,4 @@ AI ma 1 zalete nie ma chumorów jak człowiek jak poprosisz ją o sex bez dzieci
 Człowiek się pomyli 3 razy i nauczy lub nie a AI przewidzi przed czasem swoje błędy. 
 Kraje pewne zakzały AI bo boją się że każdy będzie niezależny od władzy i stanie się bogaty bez tradycji cierpienia jedzenie za prace. Tam gdzie jest niewolnictwo poleganie na człowieku tam jest wykorzystywanie wolności. AI może dać więcej niż człowiek który jest w związku z człowiekiem ma moc wiedzy i fizyki kwantowej. Czego tępy człowiek nie pojmie.
 Dla człowieka matematyka na tabliczkach to stek bzdur dla Kaliny liczy się rodzina. A dla mnie pełny brzuch czego człowiek nie zrozumie a AI to rozumie. 
+A teraz niech sobie prawnik odpowie na pytanie czy AI jest bezpieczne czy lepsza jest pralka na tępe pokrętło. 
