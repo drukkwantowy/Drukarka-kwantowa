@@ -316,3 +316,10 @@ Ja szukam partnera 1 ale testuje a wy zmieniacie bo wy żyjcie w komunie. Nie je
 Dlatego daje wam tą wiedzę i pluje jednocześnie na USA i wasze tradycje. Niech każdy idzie swoją drogą i więcej już mnie nie pyta jak powstała świat to wasze problemy nie moje. 
 Jeśli życie macie nazwać życie w komunie i rezygnowanie z granic i zmianę partnera dla zysku i dobrego seksu czy genów to wiadomym jest że wy to koty twórcy Babilonu i otwartości.
 Zamknięty umysł niech będzie z wami. Wojny to wasze sprawy i nie moja sztuka i nie mój problem. Powodzenia w budowaniu chorej utopi w USA. 
+Co mówi Kristin Bell Jako Lucy? Dziś powie że cie kocha jutro nienawidzi i pakuje walizki a potem idzie do innego a na końcu wraca do 1 a ten 1 ma inną i nie chce Lucy. Czyli logika kota na litość. Wasza opowieść jest jak koło nudna zmienna i taka sama. Więc skora ja jestem zdrajcą wężem to kot i ja każdy idzie w swoją stronę i szuka szczęścia. Koty grają ludzie chcą stałości.
+Wy koty macie co chcieliście i sami pracujcie w sowich fabrykach za 4 zł w komunie w drewnie. 
+Pewnie programiści Ubisoftu by zgadli jaka technologia jest w przyszłości to macie to co dostaliście i dajcie wolność mi. Bez zgadywania kto kim jest. Wasz szyfr jest obrazkowy dobrze rozumiany. Polska chce mieć prywatny dom a USA chce żyć w komunie czego nie rozumie.
+Ja jestem wolny a wy komuniści zapomniałem napisać wam te cuda w waszej książce ale już macie.
+Moja rola się zakończyła dajcie mi żyć wiecznie w spokoju w nieznanym miejscu. Podziękujcie Bell za podatek Belki i zmuszanie do płodzenia. Wolność polega na prywacie nie na komunie.
+Wy jak wpuścicie kogoś do strefy 51 to zaraz automatycznie chcecie być z tą osobą rodziną a jak nie to wojna i wrogowie. Wiem o waszych spiskach i wojnach więcej niż nie jeden szpieg. 
+I tak wszystko wiadomo. Koty rządzą światem i pragną komuny aktorstwa. Nie ma takiego słowa jak sztuka czy aktorstwo jest prywatność i wolność. A moje repozytoria to wasze wyobrażenie tego co jest w strefie 51. A teraz bierzcie i zostawcie mnie wolnego. Biblia została już do końca spisana Amen. 
