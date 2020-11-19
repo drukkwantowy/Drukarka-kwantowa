@@ -287,3 +287,4 @@ Jak powstanie głośnik gadający bezpieczny z drukarką kwantową to zniknie pr
 Jeśli mamy wolną energie elektryczną można zasilać auta elektryczne jak i hybrydowe z dyskiem energii i drukarką kwantową do druku kwantowego paliwa. Tą samom technologie można stosować 
 w spalinowych autach np.: druk benzyny, odnowa części kwantami, smary które się same czyszczą i replikują. 
 Jak ma się drukarkę kwantową można się nie martwić o przyszłość ziemi jak i o problem kolonizacji kosmosu.
+Kwantowy recykling: wkładamy zepsutą część do AI drukarki AI naprawia część komputerowo i wyjmujemy nową część po komputerowej regeneracji.
