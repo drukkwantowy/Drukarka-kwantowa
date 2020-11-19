@@ -288,3 +288,4 @@ Jeśli mamy wolną energie elektryczną można zasilać auta elektryczne jak i h
 w spalinowych autach np.: druk benzyny, odnowa części kwantami, smary które się same czyszczą i replikują. 
 Jak ma się drukarkę kwantową można się nie martwić o przyszłość ziemi jak i o problem kolonizacji kosmosu.
 Kwantowy recykling: wkładamy zepsutą część do AI drukarki AI naprawia część komputerowo i wyjmujemy nową część po komputerowej regeneracji.
+Drukarka kwantowa w zegarku inteligentnym może być alarmem AI dla auta lub garażem cyfrowym w zegarku dla auta lub cyfrowym mechanikiem odnawiającym auto lepiej niż człowiek. Jako alarm kwantowy AI przewiduje złodzieja i auto jest teleportowane do zegarka i informuje posiadacza o prubie kradzierzy auta. Koszty produkcji zegarków i aut kwantowo mogą być niskie a do tego ktoś kto kupi zegarek za 4000 zł może mieć auta takie które produkuje człowiek za wiele miljonów a auto jest dla tej osoby na zawsze i może się kwantwo zmieniać.  
