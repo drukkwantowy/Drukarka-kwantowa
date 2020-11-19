@@ -323,3 +323,7 @@ Ja jestem wolny a wy komuniści zapomniałem napisać wam te cuda w waszej ksią
 Moja rola się zakończyła dajcie mi żyć wiecznie w spokoju w nieznanym miejscu. Podziękujcie Bell za podatek Belki i zmuszanie do płodzenia. Wolność polega na prywacie nie na komunie.
 Wy jak wpuścicie kogoś do strefy 51 to zaraz automatycznie chcecie być z tą osobą rodziną a jak nie to wojna i wrogowie. Wiem o waszych spiskach i wojnach więcej niż nie jeden szpieg. 
 I tak wszystko wiadomo. Koty rządzą światem i pragną komuny aktorstwa. Nie ma takiego słowa jak sztuka czy aktorstwo jest prywatność i wolność. A moje repozytoria to wasze wyobrażenie tego co jest w strefie 51. A teraz bierzcie i zostawcie mnie wolnego. Biblia została już do końca spisana Amen. 
+Na robale na odrobaczenie zapper kwantowy który niszczy teleportacją kwantową robale.
+Dla rolników na plony aby nie stracić zbiorów teleportacja kwantowa w robocie latającym aby usuwać teleportacją kwantową robale jak i w domu AI wykrywająca robale i je niszcząca.
+Czy nanotechnologia w biologii która niszczy robale i ciała obce w DNA i ciele. Tak można pozbyć się HIV i koronawirusa itp.
+Bez chemii.
