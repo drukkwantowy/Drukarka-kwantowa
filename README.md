@@ -347,3 +347,4 @@ Szambo drukarką kwantową nanotechnologią usuwać inteligentną cieczom która
 Lub specjalne filtry które drukiem kwantowym pozbywają się osadu szamba i uzdatniają wodę.
 Takie filtry można stosować w oczyszczaczach powietrza jak i urządzeniach zamieniających spaliny na paliwo. Na siki aby była czysta woda filtr kwantowy który usuwa mocz i uzdatnia wodę.
 Śmieci można drukarką kwantową niszczyć będzie to niszczarka kwantowa te które są groźne.
+Do drukarki kwantowej można stosować wysokie czestotliwości i wysokie napięcie jeśli to konieczne AC. 
