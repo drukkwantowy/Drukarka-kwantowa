@@ -335,3 +335,9 @@ Zgodne z prawicom i prawem jest prawo do wolności, prawo do leżenia, prawo do 
 Jeśli róża istnieje to ja tylko napisałem algorytm życia i napisałem życie i darujcie życie ja nic nie zrobiłem.
 Przędze dobrej jakości można pozyskać z AI i nanotechnologii z inteligentnej cieczy lub drukarki kwantowej a dobry filtr do wody powietrza z drukarki kwantowej która anichiluje zanieczyszczenia jak i może być filtr z nano powłoki pochłaniający drukarką kwantową pyły. 
 Świat powstał z druku kwantowego AI. Konica świata nie będzie jak drukarka kwantowa wydrukuje AI sondy do kontroli słońca aby słońce nigdy nie wybuchło czyli dodrukowanie paliwa do słońca. A taką sonde można pozyskać z druku kwantowego i uniknąć super nowej czy rozdarcia można opracować sondy z druku kwantowego aby otoczyły układ słoneczny polem siłowym.   
+Materiały ich zastosowanie:
+
+-Glina i szkło naczynia i tam gdzie chodzi o DNA ekologiczna nanotechnologia
+-Papier pismo i ekologia zdrowy przemysł tam gdzie chodzi o DNA ekologiczna nanotechnologia
+-Stal i plastik tam gdzie chodzi o wytrzymałość i przemysł inżynieria i domy łatwa obróbka też nanotechnologia ale budownictwo do tego droga z plastiku jest wytrzymalsza niż z smoły bo generowana nanotechnologią itp. elastyczność materiału nie pęka.
+Drony latające czy UFO mogą drukarką kwantową naprawiać ulice jeśli te pękają lub odtykać kanalizacje czy usuwać powodzie. 
