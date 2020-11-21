@@ -343,3 +343,7 @@ Materiały ich zastosowanie:
 Drony latające czy UFO mogą drukarką kwantową naprawiać ulice jeśli te pękają lub odtykać kanalizacje czy usuwać powodzie. 
 Taka drukarka może radiowo wykrywać epidemie i je kwantowo usuwać. 
 Inteligentą ciecz można pozyskać z druku kwantowego np.: ciecz kultury bakterii drukującej komórki macierzyste w nieskończoność do regeneracji amputacji, naprawy słuchu i oczu. 
+Szambo drukarką kwantową nanotechnologią usuwać inteligentną cieczom która to szambo strawi w małym domowym szambie ale musi być zdrowe dla DNA.
+Lub specjalne filtry które drukiem kwantowym pozbywają się osadu szamba i uzdatniają wodę.
+Takie filtry można stosować w oczyszczaczach powietrza jak i urządzeniach zamieniających spaliny na paliwo. Na siki aby była czysta woda filtr kwantowy który usuwa mocz i uzdatnia wodę.
+Śmieci można drukarką kwantową niszczyć będzie to niszczarka kwantowa te które są groźne.
