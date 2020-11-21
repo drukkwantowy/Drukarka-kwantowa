@@ -342,3 +342,4 @@ Materiały ich zastosowanie:
 -Stal i plastik tam gdzie chodzi o wytrzymałość i przemysł inżynieria i domy łatwa obróbka też nanotechnologia ale budownictwo do tego droga z plastiku jest wytrzymalsza niż z smoły bo generowana nanotechnologią itp. elastyczność materiału nie pęka.
 Drony latające czy UFO mogą drukarką kwantową naprawiać ulice jeśli te pękają lub odtykać kanalizacje czy usuwać powodzie. 
 Taka drukarka może radiowo wykrywać epidemie i je kwantowo usuwać. 
+Inteligentą ciecz można pozyskać z druku kwantowego np.: ciecz kultury bakterii drukującej komórki macierzyste w nieskończoność do regeneracji amputacji, naprawy słuchu i oczu. 
