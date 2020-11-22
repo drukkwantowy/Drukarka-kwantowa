@@ -350,3 +350,4 @@ Takie filtry można stosować w oczyszczaczach powietrza jak i urządzeniach zam
 Do drukarki kwantowej można stosować wysokie czestotliwości i wysokie napięcie jeśli to konieczne AC. 
 Prawda jest taka że wszystko mogło by być za darmo jak jest darmowa energia ale gra ziemski żywot musi istnieć czyli ruchaj 2 drugiego aby były gagi do kabaretów i koło historii nieskończonej i tak pustej jak gwen.
 Sam kod generuje robale a podpięty pod AI generuje co się chce. 
+Drukarka kwantowa AI i dysk energii może uwolnić ludzi od teatru pracy i granie na giełdzie.  
