@@ -351,4 +351,4 @@ Do drukarki kwantowej można stosować wysokie czestotliwości i wysokie napięc
 Prawda jest taka że wszystko mogło by być za darmo jak jest darmowa energia ale gra ziemski żywot musi istnieć czyli ruchaj 2 drugiego aby były gagi do kabaretów i koło historii nieskończonej i tak pustej jak gwen.
 Sam kod generuje robale a podpięty pod AI generuje co się chce. 
 Drukarka kwantowa AI i dysk energii może uwolnić ludzi od teatru pracy i granie na giełdzie.  
-Ten kod można wykorzystać do stworzenia kwantowego AI antywirusa dla medycyny jak i rolnictwa czy wojska. 
+Ten kod można wykorzystać do stworzenia kwantowego AI antywirusa dla medycyny jak i rolnictwa czy wojska. Taki antywirus może anihilować wirusy i ciała obce czy usuwać kwantowo z dysku złośliwy kod hakera. 
