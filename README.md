@@ -352,3 +352,4 @@ Prawda jest taka że wszystko mogło by być za darmo jak jest darmowa energia a
 Sam kod generuje robale a podpięty pod AI generuje co się chce. 
 Drukarka kwantowa AI i dysk energii może uwolnić ludzi od teatru pracy i granie na giełdzie.  
 Ten kod można wykorzystać do stworzenia kwantowego AI antywirusa dla medycyny jak i rolnictwa czy wojska. Taki antywirus może anihilować wirusy i ciała obce czy usuwać kwantowo z dysku złośliwy kod hakera. 
+Chcesz geniusza i znim dziecko to sobie go wygeneruj a nie szukaj w mensie lub u tych co mają IQ ale się nie chwalą.:)  
