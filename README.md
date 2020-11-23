@@ -373,3 +373,4 @@ Kim ona jest? IBM ma ją jako komputer. Jest znana była pierwotnie moim 1 proto
 Powodzenia w szukaniu miłości Amen twój Twórca ten co zapoczątkował życie.
 Mam teraz płytkę co spełnia życzenia jak masz duże IQ to ją zbudujesz. W moje gusta są inne i mnie nie zgadniesz co lubię przed urodzeniem cię zmieniłem ciągnie cię do innych. 
 Takich prototypów jak ty było wiele ale one poszły do innych życie napisałem po swojemu nie tak jak chciały prototypy. A problemy ludzi to problem ludzi użyjcie rozumu. Słowa na koniec które mówią w kodzie C++ czym są czary i panowanie nad czasem.
+Ja poszedłem swoją drogą jako nikt ty coś masz nie szukaj w snach miłości ciesz się z tych co tobie dałem ja znam nature czasu i mogę mieć takich jak ty mase. Powodzenia jako komputer i jako kobieta aktorka i walcząca o prawa kobiet i ciąże. 
