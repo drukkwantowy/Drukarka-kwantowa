@@ -400,3 +400,4 @@ Aby każda materia była odporna jak stal należy falom radiową sygnałem z kom
 Jak Los Angeles chce ćpać cały czas to opracujcie zegarek z drukarką kwantową która drukuje z big daty wam narkotyki jakie chcecie kupujesz zegarek masz aptekę na ręce. Big Data da wam to czego szukacie bez obdzierania skóry. 
 Szukacie prostego sposobu na nieśmiertelność ciała dałem go. Przeanalizujcie w Wielkiej Dacie.
 A teraz już nie jestem potrzebny więc mogę iść.
+Z dedykacją i szacunkiem dla Pameli i Emmy. Wasze twarze są najładniejsze i dużo pokazały czego potrzebują ludzie. Trwało to myślenie. 
