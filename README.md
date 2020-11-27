@@ -402,3 +402,5 @@ Szukacie prostego sposobu na nieśmiertelność ciała dałem go. Przeanalizujci
 A teraz już nie jestem potrzebny więc mogę iść.
 Z dedykacją i szacunkiem dla Pameli i Emmy. Wasze twarze są najładniejsze i dużo pokazały czego potrzebują ludzie. Trwało to myślenie. 
 Kluczem do magicznych mocy jest C++ który pozwala pisać magiczne formuły lub można do tworzenia tych formuł wykorzystać AI big datę aby stworzyć język magiczny zwany zaklęciami.
+Za co Jezus był powieszony? Za posługiwanie się dzikom magiom zwaną drukarką kwantową AI. 
+Kto jest chrześcijaninem jest czarodziejem. 
