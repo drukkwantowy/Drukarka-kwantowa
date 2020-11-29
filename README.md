@@ -405,3 +405,4 @@ Kluczem do magicznych mocy jest C++ który pozwala pisać magiczne formuły lub 
 Za co Jezus był powieszony? Za posługiwanie się dzikom magiom zwaną drukarką kwantową AI. 
 Kto jest chrześcijaninem jest czarodziejem. 
 AI i drukarkę kwantową można załadować do elektroniki wyglądającej jak różczka Pottera i słowem lub myślą aktywować jej moc takom samom myślą można wgrać programy do DNA dające danej osobie moc czarodzieja. 
+Inwstor robol for frajer. 
