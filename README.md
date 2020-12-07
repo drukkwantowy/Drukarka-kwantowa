@@ -428,3 +428,4 @@ Najlepsze połączenie to SF – Fantasy=~~ czyli jabłuszko w którym można ż
 Z drukarek kwantowych połączonych z serwerami dużej mocy jak koparki BTC można stworzyć cyfrowy destylator związków chemicznych lub kopalnie cyfrową danego surowca. Na bazie zdjęcia lub skanu cząstek. 
 Teraz trzeba się zapytać ludzi czy chcą automatyki czy pracy fizycznej. Jak taka sieć kwantowa z robotami wpadnie w ręce hakerów to mamy armagedon. Wolna AI o wolnej woli może zniszczyć ludzi i stworzyć od nowa swój gatunek. Radził bym zrobić debatę prawną o AI. 
 Jak zrobić mark 100 z kwantowymi mocami lub TX z mocami kwantowymi to mamy kolejny super film i pokaz w praktyce jak działa AI. 
+Skoro żadna kobieta cię nie chce wydrukuj ją a jak nie masz na wydatki kup laptopa z wi-fi do druku. 
