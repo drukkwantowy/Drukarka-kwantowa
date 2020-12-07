@@ -427,3 +427,4 @@ Statki kosmiczne mogą być do tego małe wielkości sądy von neman o wymiarze 
 Najlepsze połączenie to SF – Fantasy=~~ czyli jabłuszko w którym można żyć.
 Z drukarek kwantowych połączonych z serwerami dużej mocy jak koparki BTC można stworzyć cyfrowy destylator związków chemicznych lub kopalnie cyfrową danego surowca. Na bazie zdjęcia lub skanu cząstek. 
 Teraz trzeba się zapytać ludzi czy chcą automatyki czy pracy fizycznej. Jak taka sieć kwantowa z robotami wpadnie w ręce hakerów to mamy armagedon. Wolna AI o wolnej woli może zniszczyć ludzi i stworzyć od nowa swój gatunek. Radził bym zrobić debatę prawną o AI. 
+Jak zrobić mark 100 z kwantowymi mocami lub TX z mocami kwantowymi to mamy kolejny super film i pokaz w praktyce jak działa AI. 
