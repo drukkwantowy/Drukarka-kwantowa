@@ -432,3 +432,5 @@ Skoro żadna kobieta cię nie chce wydrukuj ją a jak nie masz na wydatki kup la
 Najlepiej niech każdy sam odpowie na te pytania. 
 Pomysł też pozwala na teleportacje do symulacji wirtualnego świata w komputerze jak i teleportacji z 1 miasta do 2. 
 Co z tym można jeszcze robić? Naprawiać rysy i nakładać lakierem jeśli nas nie stać. 
+Dom będzie można postawić jak w grach Simsy z programu komputerowego do projektowania po wirtualne stawianie na mapie jak i wydruk domu kwantami na ziemi placu zakupionego. 
+Można się pozbywać plag jak epidemie lub inne problemy na świecie. 
