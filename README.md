@@ -434,3 +434,4 @@ Pomysł też pozwala na teleportacje do symulacji wirtualnego świata w komputer
 Co z tym można jeszcze robić? Naprawiać rysy i nakładać lakierem jeśli nas nie stać. 
 Dom będzie można postawić jak w grach Simsy z programu komputerowego do projektowania po wirtualne stawianie na mapie jak i wydruk domu kwantami na ziemi placu zakupionego. 
 Można się pozbywać plag jak epidemie lub inne problemy na świecie. 
+Mamy 4 wymiary czas informacja, szerokość, długość, wysokość. Muraż debil zna 3 wartości. 
