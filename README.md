@@ -435,3 +435,4 @@ Co z tym można jeszcze robić? Naprawiać rysy i nakładać lakierem jeśli nas
 Dom będzie można postawić jak w grach Simsy z programu komputerowego do projektowania po wirtualne stawianie na mapie jak i wydruk domu kwantami na ziemi placu zakupionego. 
 Można się pozbywać plag jak epidemie lub inne problemy na świecie. 
 Mamy 4 wymiary czas informacja, szerokość, długość, wysokość. Muraż debil zna 3 wartości. 
+Deformacje ciała można usuwać drukiem kwantowym a organy regenerować tym samym kwantami falom radiową tak można ze wszystkim. 
