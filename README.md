@@ -446,3 +446,13 @@ A to przykład na to że istnieje kasza manna.
 Drukarka kwantowa jest opisem maszyny manny i jak z AI zrobić magie bazuje na starym opisie technologii księga mądrości z Judaizmu. Łączy się z teorią wszystkiego i teorią względności. 
 Ja podałem praktykę a wyliczenia powie wam AI jak i opisy. AI może też odpowiedzieć jakom technologie magiczną zbudować aby nie było końca świata. 
 To że emma watson nie czaruje nie znaczy że jej sobowtór o innym imieniu i nazwisku Hermiona Grenger nie rzuca czarami w innym wymiarze tak samo Stark w innym Nowym Yorku na ziemi w innym wszechświecie. Nasz wszechświat aby był magiczny trzeba go zbadać naukowo a inne światy były magiczne od początku miały jakomś materię magiczną.   
+Do czego ten projekt?
+
+-Kreacja energii
+-Kreacja materii
+-Kreacja jedzenia
+-Wirtualna fabryka AI
+-Wirtualna Taksówka z AI
+-I to co poprosisz i zamarzysz AI zamieni słowo w rzecz
+
+Ostatnim elementem stworzenia to zamiana informacji w energie i materie 5 element 5 liczba. Nie zgubcie tego i nie trujcie o to znów dupy najlepiej znów zbudujcie arkę przymierza i to zabezpieczcie. 
