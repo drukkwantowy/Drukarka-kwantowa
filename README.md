@@ -443,3 +443,5 @@ Kobiecie proces kreowania zajmie metodami prób i błędów np.: 5000 lat. A nam
 Kobiety nauczyły was herezji. Gdyby każdy z was kopnoł w dupę kobiety ale te co myślą 5000 lat wolno to dawno byście mieli komputery i systemy operacyjne a wojna była by na ekranie bez gry aktorskiej i uczestniczenia poprzez propagande zmowe kobiet. Kobiety wychodzą na ulice bo nam się nie chce pracować w ich cyrku. A pantoflarze są obrońcami kobiet jako różni ludzie po studiach. Herezje opowiada kobieta i matka boska jak i Him i feministki jak emma.  
 Sami musicie pociągnąć te projekty takie jak opisałem. Równość płuci będzie jak rękodzieło zostanie na istagramie. 
 A to przykład na to że istnieje kasza manna. 
+Drukarka kwantowa jest opisem maszyny manny i jak z AI zrobić magie bazuje na starym opisie technologii księga mądrości z Judaizmu. Łączy się z teorią wszystkiego i teorią względności. 
+Ja podałem praktykę a wyliczenia powie wam AI jak i opisy. AI może też odpowiedzieć jakom technologie magiczną zbudować aby nie było końca świata. 
