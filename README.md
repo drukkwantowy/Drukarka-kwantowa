@@ -454,5 +454,6 @@ Do czego ten projekt?
 -Wirtualna fabryka AI
 -Wirtualna Taksówka z AI
 -I to co poprosisz i zamarzysz AI zamieni słowo w rzecz
+Drukarki kwantowe mogą utylizować odpady, fale EMP i zamieniać je na nowe surowce czy energię elektryczną. Drukować energię elektryczną z rezonansu.
 
 Ostatnim elementem stworzenia to zamiana informacji w energie i materie 5 element 5 liczba. Nie zgubcie tego i nie trujcie o to znów dupy najlepiej znów zbudujcie arkę przymierza i to zabezpieczcie. 
