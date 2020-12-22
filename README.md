@@ -458,4 +458,4 @@ Drukarki kwantowe mogą utylizować odpady, fale EMP i zamieniać je na nowe sur
 Drogi Elonie jak chesz zaistnieć to opracuj drukarkę kwantową z innymi. Twoje HiperLou samo się zbuduje.  
 Ostatnim elementem stworzenia to zamiana informacji w energie i materie 5 element 5 liczba. Nie zgubcie tego i nie trujcie o to znów dupy najlepiej znów zbudujcie arkę przymierza i to zabezpieczcie. 
 Kto zakazuje AI i karze ciężko pracować ten blóźni na boga. Głupie cieżko pracuje i głupi popełnia błędy i TV pracuje. 
-Z tym algorytmem i AI można łączyć technologie Blockchein.
+Z tym algorytmem i AI można łączyć technologie Blockchein. Alexa może kopać BitCoiny i pracować jako Trader. 
