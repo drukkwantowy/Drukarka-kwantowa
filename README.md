@@ -559,4 +559,5 @@ Widziałem cierpienie i krzyki cierpienia różowych gineli z rąk żydów a wyo
 Żyd wam powie że dla różowych czyli dla Ryli lepszym jest płacenie za paliwo lub wodór bo żyd może być bogaty i was wydoi z kasy. Jeśli chcecie mieć tanie oszczędne transporty to tylko elektryczność ale na dysku SSD nie baterii jak i fotowoltaika a suroce co wymyślił żyd dajcie żydom jako prezent odany rybom czy smokom do zwrotu. 
 Upokorzeniem dla żyda jest zabranie jego pieniędzy z jego socjalu, gry crysis, spalenie książek o nanotechnologii i zagonienie żyda z socjalu do pracy na rzecz goja. 
 Żydom zróbcie prochibicje i traktujcie ich tak samo jak oni was. Żydzi tego różowym nie zapomną. 
-Do tego dąży żyd chce być wyglądem dojrzały nieśmiertelny mieć kasę i pić jak piston https://www.youtube.com/watch?v=cu9midi-EEk.
+Do tego dąży żyd chce być wyglądem dojrzały nieśmiertelny mieć kasę i pić jak piston https://www.youtube.com/watch?v=cu9midi-EEk jego marzenie i ziemia obiecana ale na bogato. 
+A was nie żydów zabiją zarazą. 
