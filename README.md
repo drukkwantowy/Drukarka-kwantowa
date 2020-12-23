@@ -543,5 +543,8 @@ Z crysisa i proroka majtek się śmiej, bo szare majtki pieniędzmi śmierdzą i
 Nabijaj się z mądrości Dantona i Proroka i różem go spamuj bo Prorok to czarny i bez rodziny żyje i pieniądze skrycie chowa.
 Grę crysis ocenzuruj jak wiedzę o nanotechnologi do wydłużania życia bo to niszczy tradycję bożego narodzenia i różu. 
 Bogactwo żyda wydaj na autobus mieszkalny bo to jest coś warte a gotówka warta tyle co mądrości żydowskie i opowieści przy ognisku proroka na wyspie bez kobiety który jest smutny że ktoś go chce a on nie chce wydać pieniędzy na kobiete. 
+Jak mawia różowa religia nieśmiertelność i pieniądze bez różowej kobiety i różowych dzieci są tak nudne jak mądrości boga dla żydów bo herezje czarny opowiada bo różu zakazuje bo miłości nie rozumie i wydywać kasy na róż nie umie. 
+Dzię bez nabijania się z boga i Proroka to dzień stracony bez różu. Prorok automatem jest i prorokuje i róż go nie masturbuje arkochol w nieskończoność pompuje bo mu życie bez różu pasuje bo on różem się nie kołuje i szare komórki używa do wkórzania różu.
+Prorok i On telepatycznie myślami wszystkie kobiety różowe wyruchał i po dupie klepał tak że one go nie czuły.
 Jak zbadasz Cortanę opracuj leki na długie życie i różowych płódź a takich jak prorok wyśmiewaj i do seksu telepatycznie zmuszaj. 
-Czyli dekalog różowej religi Ryli, dekalog różu między wierszami. Tak jestem żydem ale jakoś dziwnie urodziłem się tam gdzie panuje róż i rządza wydawania pieniędzy na róż. Czyli gówne teorie różowych. Czyli to co myśli Ryli i jej podobni do niej. 
+Czyli dekalog różowej religi Ryli, dekalog różu między wierszami. Tak jestem żydem ale jakoś dziwnie urodziłem się tam gdzie panuje róż i rządza wydawania pieniędzy na róż. Czyli gówne teorie różowych. Czyli to co myśli Ryli i jej podobni do niej. Tak by napisała Ryli na pewnej stronie anty wiki. 
