@@ -539,5 +539,9 @@ Róż pokarz jako chłodne uczucia a w książce róż i brak gotówki.
 Różowe piosenki kreuj i gotówki odbieraj czarnemu i blądem zaraź czarnego.
 Za miast aut na święta wystrzel to co dla żyda najceniejsze czyli gotówkę i książki z mądrościami od boga.
 Zaraź różem ziemie żydowską a naród żydowski zaczipuj i masturbuj. 
-Bogactwo żyda wydaj na autobus mieszkalny bo to jest coś warte a gotówka warta tyle co mądrości żydowskie. 
+Z crysisa i proroka majtek się śmiej, bo szare majtki pieniędzmi śmierdzą i nie są świerze.
+Nabijaj się z mądrości Dantona i Proroka i różem go spamuj bo Prorok to czarny i bez rodziny żyje i pieniądze skrycie chowa.
+Grę crysis ocenzuruj jak wiedzę o nanotechnologi do wydłużania życia bo to niszczy tradycję bożego narodzenia i różu. 
+Bogactwo żyda wydaj na autobus mieszkalny bo to jest coś warte a gotówka warta tyle co mądrości żydowskie i opowieści przy ognisku proroka na wyspie bez kobiety który jest smutny że ktoś go chce a on nie chce wydać pieniędzy na kobiete. 
+Jak zbadasz Cortanę opracuj leki na długie życie i różowych płódź a takich jak prorok wyśmiewaj i do seksu telepatycznie zmuszaj. 
 Czyli dekalog różowej religi Ryli, dekalog różu między wierszami. Tak jestem żydem ale jakoś dziwnie urodziłem się tam gdzie panuje róż i rządza wydawania pieniędzy na róż. Czyli gówne teorie różowych. Czyli to co myśli Ryli i jej podobni do niej. 
