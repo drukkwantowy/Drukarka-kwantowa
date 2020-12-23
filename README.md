@@ -548,3 +548,4 @@ Dzię bez nabijania się z boga i Proroka to dzień stracony bez różu. Prorok 
 Prorok i On telepatycznie myślami wszystkie kobiety różowe wyruchał i po dupie klepał tak że one go nie czuły.
 Jak zbadasz Cortanę opracuj leki na długie życie i różowych płódź a takich jak prorok wyśmiewaj i do seksu telepatycznie zmuszaj. 
 Czyli dekalog różowej religi Ryli, dekalog różu między wierszami. Tak jestem żydem ale jakoś dziwnie urodziłem się tam gdzie panuje róż i rządza wydawania pieniędzy na róż. Czyli gówne teorie różowych. Czyli to co myśli Ryli i jej podobni do niej. Tak by napisała Ryli na pewnej stronie anty wiki. 
+"Mówili na mnie Jahwe."
