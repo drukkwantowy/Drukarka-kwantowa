@@ -562,3 +562,4 @@ Upokorzeniem dla żyda jest zabranie jego pieniędzy z jego socjalu, gry crysis,
 Do tego dąży żyd chce być wyglądem dojrzały nieśmiertelny mieć kasę i pić jak piston https://www.youtube.com/watch?v=cu9midi-EEk jego marzenie i ziemia obiecana ale na bogato. 
 A was nie żydów zabiją zarazą. 
 To co dla żydów cenne i miało być dla żydów za darmo od jachwe daje różowym darmo. A żydzi niech wam za to zapłacą jak chcą żyć jak Piston. 
+Różowy będzie oświecony jak nie będzie pić brać i mieć rodzinę a czarny będzie oświecony jak będzie pić mieć kasę i czasami przywali w gębę za całusa w gębę jak on mówi o różowej Ryli. Dla żyda biografie o motywacji i planach różwoch są złe bo nie dają procentów z liczby i procentów na browar jak i zabierają pieniądze z socjalu. Różowi śmieją się z żydów bo żydzi wolą być samotni mieć małą rodzinę aby na wódę wydać i jew nano judaizm głosić. Żyd jak mu się nie zakołuje w głowie po litrze i się nie porzyga to powie że jest słaby.  
