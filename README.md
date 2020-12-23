@@ -530,4 +530,14 @@ Akcje Tesli czcij jak róż.
 Do miłości i charytatywności namawiaj a żyda jedź jak rybę bo śmierdzi jak ryba pieniędzmi i zgaduje innych.
 Boga odsówaj od pieniędzy i do zakładania różowej rodzinny namawiaj. 
 Róż przetstawiaj jako smutek ale zostaw wątek romantyczny.
-Czyli dekalog różowej religi Ryli, dekalog różu między wierszami. Tak jestem żydem ale jakoś dziwnie urodziłem się tam gdzie panuje róż i rządza wydawania pieniędzy na róż.    
+Zaskurniaki żyda wydaj na kosmetyki.
+Naucz się czytać myśli tych co oszczędzają na inwestowaniu w róż.
+Żyda wycałuj i naucz go miłości do wydawania pieniędzy. A boga zaraź pozytywnym myśleniem i od rybizmu odal czyli od kasioryzmu.
+Życz bogu nieszczęścia w interesach i hazardzie miłości mu życz i różowych dzieci.
+Wydawaj książki edukacyjne aby wyśmiewać żydoskość a promować róż.
+Róż pokarz jako chłodne uczucia a w książce róż i brak gotówki. 
+Różowe piosenki kreuj i gotówki odbieraj czarnemu i blądem zaraź czarnego.
+Za miast aut na święta wystrzel to co dla żyda najceniejsze czyli gotówkę i książki z mądrościami od boga.
+Zaraź różem ziemie żydowską a naród żydowski zaczipuj i masturbuj. 
+Bogactwo żyda wydaj na autobus mieszkalny bo to jest coś warte a gotówka warta tyle co mądrości żydowskie. 
+Czyli dekalog różowej religi Ryli, dekalog różu między wierszami. Tak jestem żydem ale jakoś dziwnie urodziłem się tam gdzie panuje róż i rządza wydawania pieniędzy na róż. Czyli gówne teorie różowych. Czyli to co myśli Ryli i jej podobni do niej. 
