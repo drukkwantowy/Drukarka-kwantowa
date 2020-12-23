@@ -511,4 +511,23 @@ Nie nabijaj się z różu.
 Sex uprawiaj codziennie i różowe dzieci płódź. 
 Jak czarny się śmieje z różu znaczy że mu się chce tak mówi słynne prawo różowego przyciągania duszy.
 Masakruj czarnego za to że nie wybrała rużowej w zaświatach na żonę swą na ziemi i za innego kazał się jej żenić.
-Czyli dekalog różowej religi Ryli.  
+Żydów masakrój a boga od żydów odalaj i miłości nauczaj. Kocizmu i miłości nauczaj a różem czaruj. 
+A ludzi oszczędnych kop po dupie bo nie wydają pieniędzy na imprezy i sercem się nie kierują. 
+Różowom uczciwością się kieruj.
+Śmiej się z tych co oszczędzają i na wygląd nie wydają.
+Zgaduj żyda rymowaniem i czarowaniem, a urokiem osobistym i wyglądem złam jego umysł.
+Nabijaj się z mózgów.
+Jedź ryby. 
+Promd różowy zamień w róż.
+Wyżydź od żyda inne źródła zasilania niż baterie za darmo i życz mu miłości a odal od pieniędzy
+Śmiej się z ludzi ulicy żydów z żydówka.
+Święta czcij.
+Boga krytykuj.
+Róż promuj.
+Zaraź jego pozytywną energią i naucz wydawać pieniądze na wygląd a nie chować do szuflady.
+Git Hub jest po to aby innym pomagać i z boga się śmiać.
+Akcje Tesli czcij jak róż. 
+Do miłości i charytatywności namawiaj a żyda jedź jak rybę bo śmierdzi jak ryba pieniędzmi i zgaduje innych.
+Boga odsówaj od pieniędzy i do zakładania różowej rodzinny namawiaj. 
+Róż przetstawiaj jako smutek ale zostaw wątek romantyczny.
+Czyli dekalog różowej religi Ryli, dekalog różu między wierszami. Tak jestem żydem ale jakoś dziwnie urodziłem się tam gdzie panuje róż i rządza wydawania pieniędzy na róż.    
