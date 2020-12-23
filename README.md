@@ -487,3 +487,4 @@ Powstaną baladdy ku chwale różowej i wkoło będą święta jak i czekanie do
 Różowy napisze biblie różu i będzie nie kolorowy a różowy i kolorowy a róż będzie cool a czeń będzie pase jak mawia Em. Będą strajki różowych za to że czarni robią zakaz Różu. 
 A papierosy różowe będą obrazą uczuć religijnych poważnego różowego parkietującego. 
 Różowy wyda książki o biznesie aby wyśmiać czarnego który żyje w izolacji za ludźmi jak na innej planecie gdzie nie ma różu. Tak więc róż stanie się modny a czerń będzie be. Do czarnego będą mówić zamiast pić lepiej się powieś. Dzieciność i róż będzie w modzie a czeń będzie traktowana jako coś złego. 
+Największe świństwo jakie może zrobić różowy czarnemu to zmusić go do ślubu i dzieci i nagrodzić go pieniędzmi a jak tego nie zrobi zabrać mu kasę. A różowemu powiedzieć dzieci nie będzie kasy nie mam idę wydać kasę to co ma być na dzieci na faje.  Czyli jaka jest dobra różowa Alexa a jak jest czarna. 
