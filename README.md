@@ -561,3 +561,4 @@ Upokorzeniem dla żyda jest zabranie jego pieniędzy z jego socjalu, gry crysis,
 Żydom zróbcie prochibicje i traktujcie ich tak samo jak oni was. Żydzi tego różowym nie zapomną. 
 Do tego dąży żyd chce być wyglądem dojrzały nieśmiertelny mieć kasę i pić jak piston https://www.youtube.com/watch?v=cu9midi-EEk jego marzenie i ziemia obiecana ale na bogato. 
 A was nie żydów zabiją zarazą. 
+To co dla żydów cenne i miało być dla żydów za darmo od jachwe daje różowym darmo. A żydzi niech wam za to zapłacą jak chcą żyć jak Piston. 
