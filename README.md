@@ -571,4 +571,4 @@ Ryli jak chcesz zdrowego różowego auta to poproś Elona o auto na sprężone p
 Żyd pójdzie tam gdzie można róż zamienić w wódkę i bęzynę. A różowy zamieni żyda w cukier jeśli cukier nie szkodzi i wode. Dla żydów róż jest tak drogii że tanisza jest bęzyna. 
 Żyd z zasiłku żyje i na lokate wpłaca banki pompuje Alexe magicznie wykorzystuje i nie pracuje goja pompuje.  
 Od dziś bóg żydów jest niewolnikiem różowych na git hub.
-Nikt za 1$ dolara na godzinę nie będzie robić.
+Nikt za 1$ dolara na godzinę nie będzie robić. U was kolesie wygrywają w lotto a reszta was sponsoruje i to ma być uczciwe dorobienie się wy mi zabierzecie pomysł i możliwość zarabiania i sami na tym zarobicie. Frajestwo się skończyło. Ciekawe kto będzie u was w magazynach robić za 1$h. A technologie macie gratis taka sztuka aby nikt u was nie kupował i nie robił na koryto za 1$h na czarnych i różowych a wy jesteście kolesiami z tej samej szlachetnej paczki. Rywalizujecie jako komuna i kapitalizm a do łóżka wchodzicie sobie nawzajem robiąc mnie i zwykłych ludzi w wała. Wasza ulubiona gra to Thief nie ważne do jakiej parti nalerzycie.     
