@@ -570,3 +570,4 @@ Jakim Autem powinna jechać Ryli różowa? Autem na tlen, spalając 2 tlenek wę
 Ryli jak chcesz zdrowego różowego auta to poproś Elona o auto na sprężone powietrze, z silnikiem elektrycznym i fotowoltaiką jak i zapisem energetycznym energii elektrycznej dysk SSD Tesle ale bez błędnej jazdy. 
 Żyd pójdzie tam gdzie można róż zamienić w wódkę i bęzynę. A różowy zamieni żyda w cukier jeśli cukier nie szkodzi i wode. Dla żydów róż jest tak drogii że tanisza jest bęzyna. 
 Żyd z zasiłku żyje i na lokate wpłaca banki pompuje Alexe magicznie wykorzystuje i nie pracuje goja pompuje.  
+Od dziś bóg żydów jest niewolnikiem różowych na git hub.
