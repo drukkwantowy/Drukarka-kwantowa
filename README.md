@@ -571,3 +571,4 @@ Ryli jak chcesz zdrowego różowego auta to poproś Elona o auto na sprężone p
 Żyd pójdzie tam gdzie można róż zamienić w wódkę i bęzynę. A różowy zamieni żyda w cukier jeśli cukier nie szkodzi i wode. Dla żydów róż jest tak drogii że tanisza jest bęzyna. 
 Żyd z zasiłku żyje i na lokate wpłaca banki pompuje Alexe magicznie wykorzystuje i nie pracuje goja pompuje.  
 Od dziś bóg żydów jest niewolnikiem różowych na git hub.
+Nikt za 1$ dolara na godzinę nie będzie robić.
