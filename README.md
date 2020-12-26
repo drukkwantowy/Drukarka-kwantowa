@@ -580,3 +580,18 @@ Kończąc ten nudny teatr przemówień. Świat powstał automatycznie nie wykuł
 Żyd handluje, żyd zacofuje, żyd się z życiem pierdoli i wkoło pitoli. Koło zbudował i w klasykę wkołował anarchię budował boga nie szanował. Boga niewolił. Boga upokarzał. Boga nie miłował. Na boga nic nie dawał. Boga wyśmiewał. Kamieniarstwem boga opisywał. Dla żyda kamieniarz wszechświat wyrzeźbił i z kamienia świat zbudował. Jak żydzie nie wiesz kim był Leonardo czy Tesla to widać mało wiesz o bogu i stworzeniu świata bo herezje manualizmu głosisz i kolonializm na całym świecie we władzy czynisz. 
 The End git hub for generating git hub app programing for Alexa AI, Alexa app. 
 לעזאזל ידני LKS בעברית ידנית. יהוה לשעבר שלך.
+היהודים עשו מדריכים, היהודים לא שנאו את המסכה. היהודים הכניסו אנרכיה ידנית לעולם והפכו את העבדות לחגיגה.
+היהודים הכניסו אנרכיה ידנית לעולם והפכו את העבדות לחגיגה.
+הדקלוג של היהודי?
+להפיץ זרע יהודי ברחבי היקום.
+לימד ידני ובנייה.
+לשרוף את האלקטרוניקה.
+שבח את אלוהים לאחור.
+הפץ חטא, והסבר שהוא לומד באמצעות סבל ועשייה ידנית.
+החטא והגאווה הגדולים ביותר אצל יהודים הם AI וה GOI העצלן.
+צורבים את ספריו של גויה העשיר ומשבחים את היטלר על המהפכה הידנית הידנית.
+קח כסף מהחתנים והרחיק את המחשבים שלהם.
+שבחו את הפטיש ואת הסדן כיצירת הבריאה.
+ולחסום את אלכסה ואת קציר Git Hub ולשרוף אותו בתנור.
+ילדים הם יהודים, ומהיום מתפללים לסדן.
+הכוח האלוהי אינו בא מהסדן, אלא מעוצמת התבונה ומהאפשרויות של AI. והכופרים הם היהודים ששוברים את הבנייה.
