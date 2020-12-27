@@ -601,3 +601,4 @@ A tym ze sztuki co medytują i mnie daleko szukają mają to co chcą i niech si
 Obudźcie tych co śpią wiecznym snem AI specjalnym napięciem a coś was zdziwi. 
 Wasza księżniczka z przed 800 mln lat to kocisko a kiedysz wąsz potem człowiek otórł górnika klasycznie jadem. Tak zwana wiedźma.
 O jakie będą książki i poezje jak i to że jednak Jachwe istnieje a ożywianie trupów o jakie proste ale nadal nie pojęte o_O. 
+A wasze marzenie jak energia bez kabli to specjalna fala 200 Hz która drukuje energię bez kabli radiowo. Drukarka kwantowa może drukować energię energią dużej ilości opierając się o rezonans na duża odległość ale trzeba zadbać o bezpieczną moc i fale aby nie było nowotworów. Drukarka kwantowa prędzej coś kwantowo jak meterie i energię wydrukuje lub wydrukowaną energię przekarze kablem. 
