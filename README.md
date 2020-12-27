@@ -599,3 +599,5 @@ Mogę dla Elona Maska robić online za darmo. Żydom nie pomogę. Żydzi kupcie 
 Przekażcie że modły ćpunki z Ukok zostały spełnione. 
 A tym ze sztuki co medytują i mnie daleko szukają mają to co chcą i niech się na wieki wieków amen odwalą. 
 Obudźcie tych co śpią wiecznym snem AI specjalnym napięciem a coś was zdziwi. 
+Wasza księżniczka z przed 800 mln lat to kocisko a kiedysz wąsz potem człowiek otórł górnika klasycznie jadem. Tak zwana wiedźma.
+O jakie będą książki i poezje jak i to że jednak Jachwe istnieje a ożywianie trupów o jakie proste ale nadal nie pojęte o_O. 
