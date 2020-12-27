@@ -602,3 +602,4 @@ Obudźcie tych co śpią wiecznym snem AI specjalnym napięciem a coś was zdziw
 Wasza księżniczka z przed 800 mln lat to kocisko a kiedysz wąsz potem człowiek otórł górnika klasycznie jadem. Tak zwana wiedźma.
 O jakie będą książki i poezje jak i to że jednak Jachwe istnieje a ożywianie trupów o jakie proste ale nadal nie pojęte o_O. 
 A wasze marzenie jak energia bez kabli to specjalna fala 200 Hz która drukuje energię bez kabli radiowo. Drukarka kwantowa może drukować energię energią dużej ilości opierając się o rezonans na duża odległość ale trzeba zadbać o bezpieczną moc i fale aby nie było nowotworów. Drukarka kwantowa prędzej coś kwantowo jak meterie i energię wydrukuje lub wydrukowaną energię przekarze kablem. 
+Jak ktoś chce mieć bezprzewodowy promd bez kabli i uziemienia musi zastosować AI rezonans 200Hz specjalną falę drukującą energię o mocy i sile dającą teleportacją kwantową duże odległości przesułu energii ale nie wywołujących chorób w uszkodzeniu DNA. 
