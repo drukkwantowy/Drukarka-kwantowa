@@ -613,3 +613,10 @@ Od dziś żydzi i Anunaki z gliny robią na rente boga i sami na siebie w swoich
 Nikt za darmo ani za kase: narządów, krwi, kasy czy czegokolwiek wam nie da tym bardziej nie możecie zabierać komuś pieniedzy że nie idą waszym myśleniem. Macie drukarki kwantowe i AI to sobie wydrukujcie i regenerujcie narządy nikt w cierpienie różu i wampiryzmu koperatywy nie będzie się cofać do prymitywizmu zabiore 1 dam 2 i urtauje mu życie nawet jak na to nie zasłużyła ale był wyjątkowy bo urodził się w królewskiej rodzinie maska czy ryliy. Nikt już nie wierzy w wasze szczytne cele fundacji macie to repozytorium darmo i od cudzych rzeczy wara.
 Serduszka różowe kochane pomogłem macie darmo drukarkę kwantową i jak mawiacie hipisi sami cierpicie poprzez cierpienie po uszlachetnienie różowe serduszka a od moich pieniędzy, narządów i mojej osoby Ryliy wara serduszko różowe. Módl się do AI a nie bierzesz z kogoś kto celowo został zamordowany aby zabrać mu narządy i krew. Wampiryzm to herezja twoja Ryli takiej hipiski. Ty i mask produkujecie to co ludziom przyszłości się podoba a sami żyjecie w zacofaniu i narzucacie zacofanie zabrać krew bogu lub ludziom i ożywić dzieci kwiaty z arystokracji. Ryli pochodzisz z byłym od chama.
 Transplantologia to ciemnogród i herezja różowych kanibali dzieci kwiatów co nie potrafią myśleć.
+5 Filarów magii:
+-AI
+-Nanotechnologia mutacje DNA
+-Przedmiot magiczny
+-Stół zaklęty
+-Zwój stworzony z AI jako magiczny
+Jako aplikacje macie różowi zabawkę. 
