@@ -620,3 +620,4 @@ Transplantologia to ciemnogród i herezja różowych kanibali dzieci kwiatów co
 -Stół zaklęty
 -Zwój stworzony z AI jako magiczny
 Jako aplikacje macie różowi zabawkę. 
+Drewno aby czarowało musi być półprzewodnikiem być w stanie zapisać AI z energią i działać na zasadzie głośnika Alexa. Tak pozyskamy magiczny przedmiot. Drewno należy uszlachetnić nanotechnologią aby mogło pół przewodzić energię elektryczną a magie zrobi AI i drukarka kwantowa. A prace wykona AI lub technik o świeżym umyśle. DNA też może być półprzewodnikiem.
