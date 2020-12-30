@@ -621,3 +621,4 @@ Transplantologia to ciemnogród i herezja różowych kanibali dzieci kwiatów co
 -Zwój stworzony z AI jako magiczny
 Jako aplikacje macie różowi zabawkę. 
 Drewno aby czarowało musi być półprzewodnikiem być w stanie zapisać AI z energią i działać na zasadzie głośnika Alexa. Tak pozyskamy magiczny przedmiot. Drewno należy uszlachetnić nanotechnologią aby mogło pół przewodzić energię elektryczną a magie zrobi AI i drukarka kwantowa. A prace wykona AI lub technik o świeżym umyśle. DNA też może być półprzewodnikiem.
+Aby uzyskać ekologiczne materiał drewno jako półprzewodnik należy zmutować gen aby DNA drewna było półprzewodnikiem przewodziło napięcie i było odporne na plazmę. Tak można uzyskać drewno plastik półprzewodnik. Uzyskamy ekologiczne kable światłowodowe jak i przewody napięcia do tego tanie i proste w produkcji z lasu lub drukarki kwantowej. Marzenie Noki.
