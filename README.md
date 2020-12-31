@@ -627,3 +627,4 @@ Aby zrobić pałkę Potter należy drewno uszlachetnić na półprzewodnik, pokr
 Emma serduszko dobrze że twoje serce nie bije dla mnie tylko dla kogoś ci specjalnie pisanego.
 A Hermiona z innego wszechświata mam z wami wirtualny kontakt. A teraz każdy może żyć w swojej historii. Ja wracam do siebie. Wasze sekrety są tak proste jak pisanie programów i picie. Tylko serduszka będą się jarać magiczną pałką z podręcznikiem magii opracowanym przez IT a sprzedawanym w kiosku Dsneya. Ale wasze marzenia się spełniły serduszka.:).
 Jak mawia filozof serduszko.: "Gdzie kto ma serduszko tam rodzą się dzieci."
+Bonnie napisz sobie program i wyczaruj sobie 200$.
