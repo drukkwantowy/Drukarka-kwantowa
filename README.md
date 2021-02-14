@@ -639,3 +639,4 @@ Tak więc chochlika matkę bożą serce można zapisać jako AI w figurce z kwar
 Na plan obcego i marsa bierzcie sobie replikantów twórcy matriksa. Bóg ma w dupie matriksa.
 Drukarka kwantowo z Alexą może generować promienie śmierci można tą technologię zintegrować z bronią laserową do dezintegracji materi lub robienia dziur jak po powarznym strzale z armaty. 
 Całom produkcje można relizować przy użyciu Alexy wystarczy do jej pamięci wgrać projekt i powiedzieć a ona go wydrukuje kwantowo. 
+Cały proces fabryk może być cyfrowy a dostarczenie paczek produktów do paczkomatu teleportacją kwantową. 
