@@ -643,3 +643,4 @@ Cały proces fabryk może być cyfrowy a dostarczenie paczek produktów do paczk
 Jeśli Jezus miał moc to czemu go żydzi tego Palestyńczyka powiesili? A no za złodziejstwo. Gdyby były w tedy drukarki kwantowe to problem głodu, energii i bytu dawno by się rozwiązał. Drukarka kwantowa może rozwiązać konflikt Palestyńsko Izraelski jak i inne konflikty. Drukarką można drukować z darmowej energii zasoby, leki, jedzenie i przedmioty. 
 Swoje pomysły daje za darmo ale w zamian chce mieć zyski z BTC żyć jakoś trzeba z koparki.  
 Alexe można wyposarzyć w funkcję drukarki kwantowej do druku przedmitów i surowców. Alexa Auto może drukować paliwo i filtrować kwantowo powietrze czyniąc auto spalinowe czyste i tanie. 
+Drukarkę kwantową można zmieścić w słuchawce Bluethoot lub smartwach.
