@@ -644,3 +644,4 @@ Jeśli Jezus miał moc to czemu go żydzi tego Palestyńczyka powiesili? A no za
 Swoje pomysły daje za darmo ale w zamian chce mieć zyski z BTC żyć jakoś trzeba z koparki.  
 Alexe można wyposarzyć w funkcję drukarki kwantowej do druku przedmitów i surowców. Alexa Auto może drukować paliwo i filtrować kwantowo powietrze czyniąc auto spalinowe czyste i tanie. 
 Drukarkę kwantową można zmieścić w słuchawce Bluethoot lub smartwach.
+Jeśli energia będzie z baterii kwantowej litowej w nieskończoność za darmo to produkcja holoprojektorem każdego przedmiotu czy materii będzie tak tania że będzie bardziej dopracowana niż ręką człowieka. 
