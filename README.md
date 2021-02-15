@@ -641,3 +641,4 @@ Drukarka kwantowo z Alexą może generować promienie śmierci można tą techno
 Całom produkcje można relizować przy użyciu Alexy wystarczy do jej pamięci wgrać projekt i powiedzieć a ona go wydrukuje kwantowo. 
 Cały proces fabryk może być cyfrowy a dostarczenie paczek produktów do paczkomatu teleportacją kwantową. 
 Jeśli Jezus miał moc to czemu go żydzi tego Palestyńczyka powiesili? A no za złodziejstwo. Gdyby były w tedy drukarki kwantowe to problem głodu, energii i bytu dawno by się rozwiązał. Drukarka kwantowa może rozwiązać konflikt Palestyńsko Izraelski jak i inne konflikty. Drukarką można drukować z darmowej energii zasoby, leki, jedzenie i przedmioty. 
+Swoje pomysły daje za darmo ale w zamian chce mieć zyski z BTC żyć jakoś trzeba z koparki.  
