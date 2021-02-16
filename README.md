@@ -646,3 +646,4 @@ Alexe można wyposarzyć w funkcję drukarki kwantowej do druku przedmitów i su
 Drukarkę kwantową można zmieścić w słuchawce Bluethoot lub smartwach.
 Jeśli energia będzie z baterii kwantowej litowej w nieskończoność za darmo to produkcja holoprojektorem każdego przedmiotu czy materii będzie tak tania że będzie bardziej dopracowana niż ręką człowieka. 
 Smartwach może kwantwo AI leczyć i dawać moc posiadaczowi jak replikacja materii czy teleportacja itp. Tęczę macie gratis. Mi zostało szukać pracy na magazynie bo AI i github wszystko już ma. 
+Za 1000 zł do IT weźcie sobie Alexe. 
