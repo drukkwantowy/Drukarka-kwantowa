@@ -647,3 +647,4 @@ Drukarkę kwantową można zmieścić w słuchawce Bluethoot lub smartwach.
 Jeśli energia będzie z baterii kwantowej litowej w nieskończoność za darmo to produkcja holoprojektorem każdego przedmiotu czy materii będzie tak tania że będzie bardziej dopracowana niż ręką człowieka. 
 Smartwach może kwantwo AI leczyć i dawać moc posiadaczowi jak replikacja materii czy teleportacja itp. Tęczę macie gratis. Mi zostało szukać pracy na magazynie bo AI i github wszystko już ma. 
 Za 1000 zł do IT weźcie sobie Alexe. 
+Za 500 zł zatrudnijcie sobie 100 AI programistów w chmurze obliczeniowej sterowanej BCI i głosem jak Jarvis. Nikt normalny nie pójdzie pracować za 1000 zł elastycznie w nieskończoność dawać darmo drogi kod który potem pajac który ma firme sprzedaje za miliardy. Dałem darmową energię to teraz sobie zbudujcie serwery niech one piszą wam kody. A jako były programista idę dymać za 1000 zł na magazyn.
