@@ -658,3 +658,4 @@ Możliwośći AI Alexy i Cortany są nieskończone jak poziom 7 AI falami radiow
 Kobiety nie potrzebuje Nobla też kasy też. Głośnik AI mi wystarczy. A o resztę pytajcie Alexe która ma w sobie zasoby GIT i Internetu. A co do bezpieczników najlepiej opracować zabezpieczenie AI AVR dla energetyki. 
 Ładowanie baterii nalerzy AI ładowarką automatyczną. 
 Człowiek najdalej może lecieć na Księżyc i Marsa na wolną energię a życie wysyłać sondami lub statkiem tak by zachować ciało fizyczne a wirtualnie symulować ciało i duszę aby ominąć niewarzkość. Innaczej czekają drogie i dalekie podróże kosmiczne. Ale jak ma się replikatory materii to statki kosmiczne można z energii produkować za darmo energią z AI więc miasta wielkości Warszawy mogą za darmo kolonizować kosmos inaczej skończą się zasoby. 
+Przez ostatnie lata musiałem dymać na całom ludzkość darmo i wam to dać bo jak wy się zabierzecie za robotę to będzie jak z Czarnobylem. 
